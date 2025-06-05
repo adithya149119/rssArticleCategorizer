@@ -133,3 +133,5 @@ with open(dedup_file, "w") as f:
         "titles": list(seen_titles),
         "links": list(seen_links)
     }, f, indent=2)
+with open("folder_name.txt","w") as f:
+    f.write(Folder)
