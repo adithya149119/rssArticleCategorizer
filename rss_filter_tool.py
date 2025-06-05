@@ -50,7 +50,7 @@ def contains_keywords(text, keywords):
     return any(k in text_lower for k in keywords)
 
 # Load RSS feed URLs from file
-with open("rss-automation\\rss-automation\\feeds.txt", "r") as f:
+with open("feeds.txt", "r") as f:
     feed_urls = [line.strip() for line in f if line.strip()]
 
 # Parse feeds and gather entries
@@ -74,7 +74,7 @@ for url in feed_urls:
             })
 
 # Load existing deduplication data
-dedup_file = "rss-automation\\rss-automation\\deduplication.json"
+dedup_file = "deduplication.json"
 if os.path.exists(dedup_file):
     with open(dedup_file, "r") as f:
         dedup_data = json.load(f)
@@ -104,7 +104,7 @@ today = datetime.now().strftime("%d%b%Y")
 output_folder = f"Date_{today}"
 output_base = f"results_{today}"
 
-Folder = f"rss-automation\\rss-automation\\{output_folder}"
+Folder = f"{output_folder}"
 
 if not os.path.exists(Folder.encode("utf-8")):
         os.makedirs(Folder.encode("utf-8"))
