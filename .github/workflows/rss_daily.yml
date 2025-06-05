@@ -1,0 +1,40 @@
+name: Daily RSS Deduplication
+
+on:
+  schedule:
+    - cron: "0 6 * * *"
+  workflow_dispatch:
+
+jobs:
+  run-script:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v3
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: "3.12"
+
+      - name: Install dependencies
+        run: |
+          python -m pip install --upgrade pip
+          pip install feedparser beautifulsoup4 rapidfuzz
+
+      - name: Set current date env variable
+        run: |
+          echo "TODAY=$(date +'%d%b%Y')" >> $GITHUB_ENV
+
+      - name: Run RSS script
+        run: |
+          python rss_filter_tool.py
+
+      - name: Upload results
+        uses: actions/upload-artifact@v4
+        with:
+          name: rss-results-${{env.TODAY}}
+          path: |
+            Date_${{env.TODAY}}/results_${{env.TODAY}}.csv
+            Date_${{env.TODAY}}/results_${{env.TODAY}}.md
+            Date_${{env.TODAY}}/results_${{env.TODAY}}.html
+            deduplication.json
