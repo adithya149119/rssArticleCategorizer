@@ -1,0 +1,16 @@
+# Add one RSS feed URL per line
+https://alerts.talkwalker.com/alerts/rss/CZO3DPGIEQUHBDVTQ2Y7IZFVMO2S5IXEOMZCBFG5KTQ2JJTCT26EXWRPOP34C7AYCYFFL2GEDHQ6NJXWYVN647TUTPGKJCJMHQTKU36DBN6UGQ2EVMF5RQKBAGOP63CM
+https://feed.businesswire.com/rss/home/?rss=G1QFDERJXkJaF1hWXA==&_gl=1*1gd3u1j*_gcl_au*MTIxMzg3MDI2NS4xNzM4MTU1ODE5*_ga*OTIwNzU0NDE0LjE3MzgxNTU4MTk.*_ga_ZQWF70T3FK*MTczODE1NTgxOC4xLjEuMTczODE1NTk5MS4yMS4wLjA.
+https://feed.businesswire.com/rss/home/?rss=G1QFDERJXkJeEFtRWA==&_gl=1*11ts40e*_gcl_au*MTIxMzg3MDI2NS4xNzM4MTU1ODE5*_ga*OTIwNzU0NDE0LjE3MzgxNTU4MTk.*_ga_ZQWF70T3FK*MTczODE1NTgxOC4xLjEuMTczODE1NTk5MS4yMS4wLjA.
+https://feed.businesswire.com/rss/home/?rss=G1QFDERJXkJeGVtWXQ==&_gl=1*85g3ju*_gcl_au*MTIxMzg3MDI2NS4xNzM4MTU1ODE5*_ga*OTIwNzU0NDE0LjE3MzgxNTU4MTk.*_ga_ZQWF70T3FK*MTczODE1NTgxOC4xLjEuMTczODE1NjE1Ni4xNS4wLjA.
+https://www.globenewswire.com/RssFeed/subjectcode/27-Mergers%20And%20Acquisitions/feedTitle/GlobeNewswire%20-%20Mergers%20And%20Acquisitions
+https://www.nytimes.com/svc/collections/v1/publish/http://www.nytimes.com/topic/subject/mergers-acquisitions-and-divestitures/rss.xml
+https://www.drkarlpopp.com/karl-michael-popps-blog?format=rss
+https://www.clearymawatch.com/feed/
+https://www.vccircle.com/deal-type/m-a
+https://www.transactionaldelights.com/content?format=rss
+https://dealroom.net/blog/rss.xml
+https://www.theguardian.com/business/mergers-and-acquisitions/rss
+https://turkishmergersandacquisitions.wordpress.com/feed/
+https://www.macouncil.org/rss.xml
+https://www.feedspot.com/infiniterss.php?_src=followbtn&followfeedid=4866067&q=site:https%3A%2F%2Fwww.themiddlemarket.com%2Ffeed%3Frss%3Dtrue
