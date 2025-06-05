@@ -2,15 +2,18 @@ name: Daily RSS Deduplication
 
 on:
   schedule:
-    - cron: "0 6 * * *"  # Runs daily at 6:00 AM UTC
-  workflow_dispatch:      # Allow manual trigger too
+    - cron: "0 6 * * *"
+  workflow_dispatch:
+
+permissions:
+  contents: write
 
 jobs:
   run-script:
     runs-on: ubuntu-latest
 
     steps:
-      - name: Checkout repository
+      - name: Checkout code
         uses: actions/checkout@v3
 
       - name: Set up Python
@@ -24,24 +27,25 @@ jobs:
           pip install feedparser beautifulsoup4 rapidfuzz
 
       - name: Run RSS script
+        run: python rss_filter_tool.py
+
+      - name: Read output folder name
+        id: read_folder
         run: |
-          python rss_filter_tool.py
+          folder=$(cat folder_name.txt | tr -d '\n')
+          echo "FOLDER_NAME=$folder" >> $GITHUB_ENV
+          echo "folder_name=$folder" >> $GITHUB_OUTPUT
 
-      - name: Read folder name from script output
-        id: read-folder
-        run: echo "FOLDER_NAME=$(cat folder_name.txt)" >> $GITHUB_ENV
-
-      - name: Move output to version-controlled folder
+      - name: Move output to /output folder
         run: |
           mkdir -p output
-          mv "${{ env.FOLDER_NAME }}" output/
+          mv "${{ env.FOLDER_NAME }}" "output/${{ env.FOLDER_NAME }}"
 
       - name: Commit and push results
         run: |
-          git config user.name "github-actions[bot]"
-          git config user.email "github-actions[bot]@users.noreply.github.com"
-          git pull origin ${{ github.ref_name }}  # prevent non-fast-forward error
-          git add output/${{ env.FOLDER_NAME }}
-          git add deduplication.json
-          git commit -m "Daily RSS output for ${{ env.FOLDER_NAME }}"
+          git config user.name "github-actions"
+          git config user.email "github-actions@github.com"
+          git pull origin ${{ github.ref_name }}
+          git add output/
+          git diff --cached --quiet || git commit -m "Daily RSS output for ${{ env.FOLDER_NAME }}"
           git push origin ${{ github.ref_name }}
