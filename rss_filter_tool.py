@@ -106,22 +106,22 @@ output_base = f"results_{today}"
 
 Folder = f"{output_folder}"
 
-if not os.path.exists(Folder.encode("utf-8")):
-        os.makedirs(Folder.encode("utf-8"))
+if not os.path.exists(Folder):
+        os.makedirs(Folder)
 
 # Save CSV
-with open(f"{Folder}\\{output_base}.csv", "w", newline="", encoding="utf-8") as f:
+with open(f"{Folder}\\{output_base}.csv", "w", newline="") as f:
     writer = csv.DictWriter(f, fieldnames=["title", "link", "summary", "published"])
     writer.writeheader()
     writer.writerows(filtered_entries)
 
 # Save Markdown
-with open(f"{Folder}\\{output_base}.md", "w", encoding="utf-8") as f:
+with open(f"{Folder}\\{output_base}.md", "w") as f:
     for entry in filtered_entries:
         f.write(f"- [{entry['title']}]({entry['link']})\n")
 
 # Save HTML
-with open(f"{Folder}\\{output_base}.html", "w", encoding="utf-8") as f:
+with open(f"{Folder}\\{output_base}.html", "w") as f:
     f.write("<html><body>\n")
     for entry in filtered_entries:
         f.write(f"<p><a href='{entry['link']}'>{entry['title']}</a><br>{entry['summary']}</p>\n")
