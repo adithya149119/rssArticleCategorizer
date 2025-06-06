@@ -1,0 +1,8 @@
+- [Millennium Management LLC's Strategic Acquisition of Constellium SE Shares](https://www.gurufocus.com/news/2912119/millennium-management-llcs-strategic-acquisition-of-constellium-se-shares)
+- [Michael Duffey Assumes Role as New Acquisition, Sustainment Chief](https://peterholland765.wordpress.com/2025/06/06/michael-duffey-assumes-role-as-new-acquisition-sustainment-chief/)
+- [...Stockholders to Vote FOR the Merger Proposal...](https://go.chinesewire.com/article/Logan-Ridge-Announces-Change-of-Date-to-the-Special-Meeting-of-Stockholders-to-Allow-Additional-Time-for-Stockholders-to-Vote-FOR-the-Merger-Proposal?storyId=68422a7d1e0b3f8361aab85b)
+- [...Stockholders to Vote FOR the Merger Proposal GlobeNewswire | Logan Ridge Finance Corporation...](https://smb.windsorweekly.com/article/Logan-Ridge-Announces-Change-of-Date-to-the-Special-Meeting-of-Stockholders-to-Allow-Additional-Time-for-Stockholders-to-Vote-FOR-the-Merger-Proposal?storyId=68422a7d1e0b3f8361aab85b)
+- [...Stockholders to Vote FOR the Merger...](https://www.journalofbusinessnews.com/article/819510871-logan-ridge-announces-change-of-date-to-the-special-meeting-of-stockholders-to-allow-additional-time-for-stockholders-to-vote-for-the-merger)
+- [Europe Satellite Merger: No Starlink Rival](https://www.newsdirectory3.com/europe-satellite-merger-no-starlink-rival/)
+- [Portman Ridge Merger Vote Extended After Strong Proxy Advisor Support | PTMN Stock News](https://www.stocktitan.net/news/PTMN/portman-ridge-announces-change-of-date-to-the-special-meeting-of-fhewpt25x0dj.html)
+- [Logan Ridge Special Meeting for Merger Vote Extended to June 20 | LRFC Stock News](https://www.stocktitan.net/news/LRFC/logan-ridge-announces-change-of-date-to-the-special-meeting-of-u6cghkfivypf.html)
