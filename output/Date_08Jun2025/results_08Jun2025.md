@@ -1,0 +1,6 @@
+- [Uganda bolsters ISR capabilities with Diamond DA62 acquisition](https://www.military.africa/2025/06/uganda-bolsters-isr-capabilities-with-diamond-da62-acquisition/)
+- [Regional Director of Talent Acquisition](https://www.builtinnyc.com/job/regional-director-talent-acquisition/6391603)
+- [Sikkim Police Arrests Gorkha Seva Sena Leaders Amid Ongoing Merger Controversy](https://kalimpongonlinenews.blogspot.com/2025/06/sikkim-police-arrests-gorkha-seva-sena.html)
+- [...approval to advance Pincell acquisition and PC111...](https://business-news-today.com/scinai-immunotherapeutics-secures-italian-approval-to-advance-pincell-acquisition-and-pc111-development/)
+- [...Mennovic & Kyriakopoulos | The acquisition of Vagiannidis'...](https://newsbulletin247.com/sports/690612.html)
+- [Revolution Acceleration Acquisition (OTCMKTS:RAACU) vs. Twin Disc (NASDAQ:TWIN) Head-To-Head Review](https://reporter.am/2025/06/07/revolution-acceleration-acquisition-otcmktsraacu-vs-twin-disc-nasdaqtwin-head-to-head-review.html)
