@@ -1,0 +1,6 @@
+- [Europes $3.1B satellite merger wont rival Musks Starlink](https://www.archynewsy.com/europes-3-1b-satellite-merger-wont-rival-musks-starlink/)
+- [Pakistan confirms acquisition of Chinese J-35 stealth fighters and integrated air defence systems](http://www.combataircraft.com/en/News/2025/06/09/Pakistan-confirms-acquisition-of-Chinese-J-35-stealth-fighters-and-integrated-air-defence-systems/)
+- [How Armenia Might Respond To Azerbaijans JF-17 Fighter Acquisition](http://www.combataircraft.com/en/News/2025/06/09/How-Armenia-Might-Respond-To-Azerbaijan%E2%80%99s-JF-17-Fighter-Acquisition/)
+- [Iran Claims Acquisition of Sensitive Israeli Intelligence, Including Nuclear Documents](https://ssbcrackexams.com/iran-claims-acquisition-of-sensitive-israeli-intelligence-including-nuclear-documents/)
+- [Baykar's Piaggio Aerospace Acquisition Gets 'Golden Power' Approval](https://raillynews.com/2025/06/Baykarin-piaggio-aerospace-purchase-golden-power-approval/)
+- [Baykars Piaggio Aerospace Acquisition Gets Golden Power Approval RayHaber](https://www.raillynews.com/2025/06/Baykarin-piaggio-aerospace-purchase-golden-power-approval/)
