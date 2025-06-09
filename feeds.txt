@@ -7,10 +7,9 @@ https://www.globenewswire.com/RssFeed/subjectcode/27-Mergers%20And%20Acquisition
 https://www.nytimes.com/svc/collections/v1/publish/http://www.nytimes.com/topic/subject/mergers-acquisitions-and-divestitures/rss.xml
 https://www.drkarlpopp.com/karl-michael-popps-blog?format=rss
 https://www.clearymawatch.com/feed/
-https://www.vccircle.com/deal-type/m-a
-https://www.transactionaldelights.com/content?format=rss
-https://dealroom.net/blog/rss.xml
 https://www.theguardian.com/business/mergers-and-acquisitions/rss
-https://turkishmergersandacquisitions.wordpress.com/feed/
 https://www.macouncil.org/rss.xml
-https://www.feedspot.com/infiniterss.php?_src=followbtn&followfeedid=4866067&q=site:https%3A%2F%2Fwww.themiddlemarket.com%2Ffeed%3Frss%3Dtrue
+https://seekingalpha.com/market-news/m-a.xml
+https://pitchbook.com/news/merger-and-acquisitions.rss
+https://www.ft.com/rss/home/international
+https://themandajournal.com/feed/
