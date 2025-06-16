@@ -1,0 +1,5 @@
+- [Breaking News: Slovenia enhances artillery power with acquisition of 12 French CAESAR 6x6 howitzers.](https://mtqnews.blogspot.com/2025/06/breaking-news-slovenia-enhances.html)
+- [...enhances artillery power with acquisition of 12 French CAESAR 6x6...](http://worlddefencenews.blogspot.com/2025/06/breaking-news-slovenia-enhances.html)
+- [Air Force to fast-track acquisition of 12 AH-1Z Viper helicopters](https://guardian.ng/news/air-force-to-fast-track-acquisition-of-12-ah-1z-viper-helicopters/)
+- [Morocco nears acquisition of Bombardier Global 6500 electronic warfare jets](https://en.walaw.press/articles/morocco_nears_acquisition_of_bombardier_global_6500_electronic_warfare_jets/GMSSMFFLMSFG)
+- [Approval of Acquisition by Nippon Steel: Deal Opens New Doors for Japan-U.S. Cooperation](https://www.alojapan.com/1298604/approval-of-acquisition-by-nippon-steel-deal-opens-new-doors-for-japan-u-s-cooperation/)
