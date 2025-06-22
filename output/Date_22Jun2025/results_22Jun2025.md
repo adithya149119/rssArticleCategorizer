@@ -1,0 +1,4 @@
+- [Pentagon officials worry Washingtons tariffs may undermine defense acquisition](http://namibiadailynews.info/pentagon-officials-worry-washingtons-tariffs-may-undermine-defense-acquisition/)
+- [Nippon Steel Completes Acquisition of US Steel Under National Security Agreement](https://natlawreview.com/article/nippon-steel-completes-acquisition-us-steel-under-national-security-agreement)
+- [Nippon Steel & U.S. Steel Merger: Deal Finalized](https://www.archynewsy.com/nippon-steel-u-s-steel-merger-deal-finalized/)
+- [The new acquisition from Petrolul Ploiesti, double in the test against the...](https://knews.media/2025/06/21/the-new-acquisition-from-petrolul-ploiesti-double-in-the-test-against-the-team-made-up-of-players-without-a-contract/)
