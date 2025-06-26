@@ -1,0 +1,8 @@
+- [Navy ship remains non-operational 15 months after acquisition](https://www.irishtimes.com/ireland/2025/06/26/navy-ship-remains-non-operational-15-months-after-acquisition/)
+- [MP merger off the cards, but Lynas still looking offshore](https://www.mining-journal.com/miners/news-analysis/4515879/mp-merger-cards-lynas-looking-offshore)
+- [DEFENSE | UK Bolsters Nuclear Deterrence with F-35A Stealth Jet Acquisition](https://www.aeronewsjournal.com/2025/06/defense-uk-bolsters-nuclear-deterrence.html)
+- [SAF Voices Concern Over ATF-DEA Merger in Letter to Attorney General](https://www.thetacticalwire.com/releases/9af51d86-e1d5-4de6-be69-cdcfed6eecc7)
+- [AeroVironment Stock Surges 21% After Strong Q4 Earnings And Strategic Acquisition](https://dronexl.co/2025/06/25/aerovironment-stock-surges-q4-earnings/)
+- [Defence stock jumps 4% after Co announces 100% acquisition of UK-based defence firm for 3.42 Mil](https://www.htsyndication.com/trade-brains/article/defence-stock-jumps-4percent-after-co-announces-100percent-acquisition-of-uk-based-defence-firm-for-and-163;3.42-mil/91175627)
+- [Pennsylvania American Water Completes Acquisition of Manwalamink Water and Sewer Company Systems](https://oilandgaspress.com/pennsylvania-american-water-completes-acquisition-of-manwalamink-water-and-sewer-company-systems-2/)
+- [AppDirect Makes Another Energy Broker Acquisition](https://www.channelfutures.com/mergers-acquisitions/appdirect-makes-another-energy-broker-acquisition)
