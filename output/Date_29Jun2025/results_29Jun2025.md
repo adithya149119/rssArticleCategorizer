@@ -1,0 +1,4 @@
+- [Who is Ilya Safonov, the Canucks' latest trade acquisition?](https://www.tricitynews.com/highlights/who-is-ilya-safonov-vancouver-canucks-trade-2025-khl-10879257)
+- [Iran Weighs J-10C Fighter Acquisition from China as Prolonged Su-35 Delays from Russia Test...](https://theasialive.com/iran-weighs-j-10c-fighter-acquisition-from-china-as-prolonged-su-35-delays-from-russia-test-tehrans-patience/2025/06/28/)
+- [Acquisition](https://www.mynavyhr.navy.mil/Career-Management/Detailing/Officer/Acquisition/)
+- [...Discuss 2026 Defense Budget, Air Force Commander Announces Gripen Jet Acquisition](https://www.thailandnewsgazette.com/armed-forces-commanders-convene-to-discuss-2026-defense-budget-air-force-commander-announces-gripen-jet-acquisition/)
