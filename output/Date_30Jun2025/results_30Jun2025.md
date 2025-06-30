@@ -1,0 +1,6 @@
+- [JINF Report: China and Russia's Strategic Merger](https://japan-forward.com/jinf-report-china-and-russias-cyber-and-military-convergence/)
+- [Nuburu accelerates defense-tech expansion with Tekne acquisition and 50m](https://business-news-today.com/nuburu-accelerates-defense-tech-expansion-with-tekne-acquisition-and-e50m-tactical-bubble-deployment/)
+- [Pennsylvania American Water to acquire Pittston wastewater system for](https://business-news-today.com/pennsylvania-american-water-to-acquire-pittston-wastewater-system-for-26-4m/)
+- [ATF/DEA merger: a good idea?](https://www.americanthinker.com/blog/2025/06/atf_dea_merger_a_good_idea.html)
+- [...acquisition PATHWAYS listed under the flexible Defense Acquisition System - Adaptive Acquisition...](https://www.coursehero.com/tutors-problems/Business-Other/75081160-One-of-the-six-acquisition-PATHWAYS-listed-under-the-flexible/)
+- [Nippon Steels Acquisition of U.S. Steel: A Global Response to Chinese Competition](https://www.caixinglobal.com/2025-06-28/weekly-preview-nippon-steels-30-billion-acquisition-of-us-steel-a-global-response-to-chinese-competition-102336041.html)
