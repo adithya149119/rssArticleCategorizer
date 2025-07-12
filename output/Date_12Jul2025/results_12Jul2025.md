@@ -1,0 +1,8 @@
+- [Trump blocks acquisition of equipment supplier Jupiter Systems by Hong Kong firm](https://hi99.com/2025/07/11/trump-blocks-acquisition-of-equipment-supplier-jupiter-systems-by-hong-kong-firm/)
+- [Lightnings most realistic trade acquisition in 2025 NHL offseason](https://www.yardbarker.com/nhl/articles/lightnings_most_realistic_trade_acquisition_in_2025_nhl_offseason/s1_17117_42442053)
+- [Trump Blocks Acquisition of Jupiter Systems by Hong Kong Firm | Technology](https://www.devdiscourse.com/article/technology/3501506-trump-blocks-acquisition-of-jupiter-systems-by-hong-kong-firm)
+- [HASC, SASC NDAAs Differ On Topline By Billions, Agree On Pursuing Major Acquisition Reforms](https://www.defensedaily.com/hasc-sasc-ndaas-differ-on-topline-by-billions-agree-on-pursuing-major-acquisition-reforms/congress/)
+- [Hudson Acquisition I Corp. to Delist Stock, Rights & Units Form 25 | VEEV SEC Filing - Form 4](https://www.stocktitan.net/sec-filings/VEEV/form-4-veeva-systems-inc-insider-trading-activity-00e308945f71.html)
+- [Hudson Acquisition I Corp. to Delist Stock, Rights & Units Form 25 | TRDA SEC Filing - Form 4](https://www.stocktitan.net/sec-filings/TRDA/form-4-entrada-therapeutics-inc-insider-trading-activity-66f037e741ea.html)
+- [Senate defense bill adopts parts of FORGED Act to overhaul Pentagon acquisition](https://poseidon-us.com/2025/07/11/senate-defense-bill-adopts-parts-of-forged-act-to-overhaul-pentagon-acquisition/)
+- [User Acquisition Specialist](https://www.builtincolorado.com/job/user-acquisition-specialist/6620972)
