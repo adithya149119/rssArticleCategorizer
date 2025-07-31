@@ -1,0 +1,7 @@
+- [Tata Motors To Acquire Iveco In $4.3 Billion Deal, Eyes European Expansion](https://www.ndtv.com/auto/tata-motors-to-acquire-iveco-in-4-3-billion-deal-eyes-european-expansion-8989268)
+- [NXP MEMS Acquisition from STMicroelectronics valued at up to $950 million](https://www.electronicsmedia.info/2025/07/31/nxp-mems-acquisition-from-st/)
+- [Euronet Q2 Earnings: 13% Profit Growth, Major Credit Platform Acquisition | EEFT Stock News](https://www.stocktitan.net/news/EEFT/euronet-worldwide-reports-second-quarter-2025-financial-results-on2zbj4ukhlw.html)
+- [Euronet and CoreCard Announce Merger Agreement to Unlock Global Opportunities in Credit Card...](https://worldonlinenewsreports.com/article/835565741-euronet-and-corecard-announce-merger-agreement-to-unlock-global-opportunities-in-credit-card-issuing-and-processing)
+- [Trade acquisition cant contain his excitement about playing for the Yankees](https://empiresportsmedia.com/new-york-yankees/trade-acquisition-cant-contain-his-excitement-about-playing-for-the-yankees/)
+- [FAR Overhaul: OMB Sends 16 Legislative Proposals to Congress, Pushing Sweeping Acquisition Reform](https://www.covingtonblogs.com/2025/07/30/far-overhaul-omb-sends-16-legislative-proposals-to-congress-pushing-sweeping-acquisition-reform/)
+- [Tata Motors' $4.5 Billion Iveco Acquisition: A Defining Leap Toward Global Commercial Vehicle...](https://www.financialtechguide.com/2025/07/tata-motors-45-billion-iveco.html)
