@@ -1,0 +1,8 @@
+- [...Ministry of Defense signs a contract for the acquisition of German IRIS-T SLM air defense missile...](http://www.almusallh.ly/en/news/5489-2025-08-03-00-20-22)
+- [Micah Parsons ignites trade frenzy as Ravens poised to transform defense with historic acquisition](https://motociclismo.pt/en/micah-parsons-ignites-trade-frenzy-as-ravens-poised-to-transform-defense-with-historic-acquisition/)
+- [Breaking Down Palo Alto Networks $25B CyberArk Acquisition](https://alphaleaders.co.uk/breaking-down-palo-alto-networks-25b-cyberark-acquisition/)
+- [How To Reduce Customer Acquisition Costs With Performance Marketing Software](https://stephenvybdg.pointblog.net/how-to-reduce-customer-acquisition-costs-with-performance-marketing-software-82780301)
+- [...agreement for the acquisition of hydraulic entry tools for the defense and federal police tender...](https://global.tendernews.com/tender-info.aspx?r=864217250802&s=0)
+- [Oklo, an Advanced Fission Technology Company, to Go Public via Merger with AltC Acquisition Corp.](https://www.oklo.com/newsroom/news-details/2023/Oklo-an-Advanced-Fission-Technology-Company-to-Go-Public-via-Merger-with-AltC-Acquisition-Corp/default.aspx)
+- [3d Printing News Briefs, August 2, 2025: Acquisition, Lfam, & More - 3dprint.com](https://3dprint.com/319727/3d-printing-news-briefs-8-2-2025/)
+- [Pakistani Lawyers Forum in UK.: BigLaw Merger & Gulf Legal Reforms Reshape Global Legal Market](https://lets-legislate.blogspot.com/2025/08/biglaw-merger-gulf-legal-reforms.html)
