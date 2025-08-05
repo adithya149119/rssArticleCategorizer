@@ -1,0 +1,8 @@
+- [Allison Transmissions Strong Q2 and Strategic Acquisition](https://blog.tipranks.com/allison-transmissions-strong-q2-and-strategic-acquisition/)
+- [...Digital Sovereignty and Completes Acquisition of...](https://berndailypress.com/article/836932203)
+- [AFCEC to compete at SAF Defense Acquisition Workforce Awards](https://www.jbsa.mil/News/Graphics/igphoto/2003770666/)
+- [UNIT insider converts 678,761 shares at 0.6029 ratio in merger Form 4 | POST SEC Filing - Form 4](https://www.stocktitan.net/sec-filings/POST/form-4-post-holdings-inc-insider-trading-activity-8f9a905477dc.html)
+- [UNIT insider converts 678,761 shares at 0.6029 ratio in merger Form 4 | SEMR SEC Filing - Form 4](https://www.stocktitan.net/sec-filings/SEMR/form-4-se-mrush-holdings-inc-insider-trading-activity-2cad98ebb924.html)
+- [Amphenol (APH) Sees Price Target Increase Following Acquisition Deal](https://www.gurufocus.com/news/3033049/amphenol-aph-sees-price-target-increase-following-acquisition-deal)
+- [Allison Transmission Q2 2025 slides: Profit growth amid flat sales, announces $2.7B acquisition](https://za.investing.com/news/company-news/allison-transmission-q2-2025-slides-profit-growth-amid-flat-sales-announces-27b-acquisition-93CH-3818860)
+- [Valence Surface Technologies Acquires C.I.L. Metal Finishing and C.I.L. Electroplating](http://www.businesswire.com/news/home/20250803891796/en/Valence-Surface-Technologies-Acquires-C.I.L.-Metal-Finishing-and-C.I.L.-Electroplating/?feedref=JjAwJuNHiystnCoBq_hl-Rc4vIAVcHHkbDcwJimU8QtrtlakeQ9hNboBqTAWIjTge3KWq9s9jif-UkBjBsFRyYAbRTSLTc1mgvhPlnaBA55M-oupQnbXnhKsYk8RmHF_kAy2gZikaX3QWV6xOvgFlA==)
