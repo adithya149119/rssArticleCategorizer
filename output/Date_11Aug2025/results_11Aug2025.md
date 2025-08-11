@@ -1,0 +1,4 @@
+- [Ranking Every Hawks Offseason Acquisition By Their Potential Impact](https://www.si.com/nba/hawks/news/ranking-every-hawks-offseason-acquisition-by-their-potential-impact-01k2am1e6kge)
+- [Is the UAE approaching the acquisition of the South Korean KF-21 fighters?](https://www.elrisala.com/is-the-uae-approaching-the-acquisition-of-the-south-korean-kf-21-fighters/)
+- [Can Americans Acquire Property In Mexico?](https://loridggz632145.blog2learn.com/84319346/can-americans-acquire-property-in-mexico)
+- [Amidst global criticism, Trump supports Trump Signal for Netanyahu's Gaza acquisition](https://www.thelocalreport.in/amidst-global-criticism-trump-supports-trump-signal-for-netanyahus-gaza-acquisition/)
