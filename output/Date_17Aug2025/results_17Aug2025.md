@@ -1,0 +1,3 @@
+- [Dar - Data Acquisition Request](https://www.acronymfinder.com/Data-Acquisition-Request-(DAR).html)
+- [Accenture to acquire Australias CyberCX in record cyber transaction](http://www.dominicanrepublicnews.net/news/278512237/accenture-to-acquire-australia-s-cybercx-in-record-cyber-transaction)
+- [Accentures largest cyber deal: $650 million acquisition of CyberCX](http://www.buffalobreeze.com/news/278512237/accenture-s-largest-cyber-deal-usd650-million-acquisition-of-cybercx)
