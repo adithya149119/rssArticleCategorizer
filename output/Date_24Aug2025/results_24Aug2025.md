@@ -1,0 +1,7 @@
+- [...Missile to Bolster Defense, Following BrahMos Acquisition](https://idrw.org/philippine-armed-forces-eye-indias-pralay-tactical-ballistic-missile-to-bolster-defense-following-brahmos-acquisition/)
+- [U.S. Government to Acquire Stake in Intel, Utilizing Existing Funding](https://www.archyde.com/significant-investment-in-intel-technology-sourced-from-pre-awarded-grants-under-the-trump-administration/)
+- [...Air Force Modernization with Acquisition of Brazilian KC-390 Millennium...](https://trendsnafrica.com/morocco-advances-royal-air-force-modernization-with-acquisition-of-brazilian-kc-390-millennium-aircraft/)
+- [Syrian Druze Factions Merger Statement](https://www.aymennaltamimi.com/p/syrian-druze-factions-merger-statement)
+- [BTX Precision Expands Capabilities With Acquisition Of High Tech Solutions](https://pulse2.com/btx-precision-expands-capabilities-with-acquisition-of-high-tech-solutions/)
+- [White House announces US acquisition of 10% stake in chipmaker Intel](https://jang.com.pk/en/45698-white-house-announces-us-acquisition-of-10-stake-in-chipmaker-intel-news)
+- [ZenaTech Expansion Strategy Flight School Acquisition](https://gameupnews.com/zenatech-expansion-strategy-flight-school-acquisition/)
