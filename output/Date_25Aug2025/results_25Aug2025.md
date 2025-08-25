@@ -1,0 +1,6 @@
+- [... Ozekhome San Warns Fg, Says Merger Undermines Impartiality In Justice...](https://thenigerialawyer.com/separate-agf-from-minister-of-justice-ozekhome-san-warns-fg-says-merger-undermines-impartiality-in-justice-delivery/)
+- [Pentagon terminating JCIDS process as part of larger acquisition reform: Memo - Breaking Defense](https://stateofthenationnow.blogspot.com/2025/08/pentagon-terminating-jcids-process-as.html)
+- [The 1970 Gold Rush Motor Lodge fire: Tragedy, myth and the road to municipal merger](https://www.adn.com/alaska-life/2025/08/24/the-1970-gold-rush-motor-lodge-fire-tragedy-myth-and-the-road-to-municipal-merger/)
+- [Pakistan May Acquire Chinas HQ-29 Anti Satellite Defence System to Counter Indian Ballistic ...](https://timesofislamabad.com/25-Aug-2025/pakistan-may-acquire-china-s-hq-29-anti-satellite-defence-system-to-counter-indian-ballistic-missiles)
+- [[Solved] These questions are for Defense Acquisition University Contracting 7800 course: . TO3.EO01...](https://www.coursehero.com/tutors-problems/Business-Other/69371926-These-questions-are-for-Defense-Acquisition-University-Contracting/)
+- [CyberArk Mega-Deal Marks Latest Israeli Intelligence Acquisition in Silicon Valley](https://conservativeangle.com/cyberark-mega-deal-marks-latest-israeli-intelligence-acquisition-in-silicon-valley/)
