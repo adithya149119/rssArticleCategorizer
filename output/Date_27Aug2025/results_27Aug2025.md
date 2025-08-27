@@ -1,0 +1,8 @@
+- [Yankees' key trade acquisition quietly struggling worse than Anthony Volpe](https://www.yardbarker.com/mlb/articles/yankees_key_trade_acquisition_quietly_struggling_worse_than_anthony_volpe/s1_13132_42644439)
+- [CBJ editorial: HNIs big acquisition and its gift](https://corridorbusiness.com/cbj-editorial-hnis-big-acquisition-and-its-gift/)
+- [...Increase in Revenue for Q2 with Acquisition Plans Including UK Telecom 3D Design/Modeling Company...](https://www.financialcontent.com/article/prlog-2025-8-26-500-increase-in-revenue-for-q2-with-acquisition-plans-including-uk-telecom-3d-designmodeling-company-for-global-ai-drone-and-quantum-computing-leader)
+- [Weil Advised Peak Rock in its Acquisition of Aegis Software](https://www.weil.com/articles/weil-advised-peak-rock-in-its-acquisition-of-aegis-software)
+- [Okta Boosts PAM with Axiom Security Acquisition](https://www.channelfutures.com/mergers-acquisitions/okta-boosts-pam-axiom-security-acquisition)
+- [How AI can accelerate defense acquisition and help U.S. forces keep pace with technology](https://federalnewsnetwork.com/commentary/2025/08/how-ai-can-accelerate-defense-acquisition-and-help-u-s-forces-keep-pace-with-technology/)
+- [...Revenue for Q2 with Aggressive Acquisition Plans in Play Including UK Telecom 3D Design/Modeling...](https://news.financenewsworld.com/story/518719/500-increase-in-yearoveryear-revenue-for-q2-with-aggressive-acquisition-plans-in-play-including-uk-telecom-3d-designmodeling-company-for-global-ai-drone-quantum-computing-leader-zenatech-inc.html)
+- [Okta Makes Ai Identity Play With Axiom Acquisition](https://cybernoz.com/okta-makes-ai-identity-play-with-axiom-acquisition/)
