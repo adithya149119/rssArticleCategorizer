@@ -1,0 +1,2 @@
+- [Senior Talent Acquisition Team Lead, Business](https://www.builtinnyc.com/job/senior-talent-acquisition-team-lead-business/7010642)
+- [US Air Force F-35A Acquisition Faces Delays Until 2050s](https://www.aeronewsjournal.com/2025/08/us-air-force-f-35a-acquisition-faces.html)
