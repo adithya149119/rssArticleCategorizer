@@ -1,0 +1,5 @@
+- [Phillies' underrated trade deadline acquisition proving himself after slow start](https://thatballsouttahere.com/phillies-underrated-trade-deadline-acquisition-proving-himself-after-slow-start)
+- [Breaking News: Denmark Strengthens Air Defense with First U.S. Patriot PAC-3 MSE Missile Acquisition](https://www.armyrecognition.com/news/army-news/2025/breaking-news-denmark-strengthens-air-defense-with-first-u-s-patriot-pac-3-mse-missile-acquisition)
+- [Astros Slugger Carlos Correa Ranked as Top MLB Trade Deadline Acquisition](https://www.si.com/mlb/astros/news/astros-carlos-correa-ranked-top-mlb-trade-deadline-acquisition)
+- [...Strengthens Air Defense with First U.S. Patriot PAC-3 MSE Missile Acquisition.](http://wardefencenews.blogspot.com/2025/08/breaking-news-denmark-strengthens-air.html)
+- [Arclin Enters into Definitive Agreement to Acquire...](https://9krapalm.com/arclin-enters-into-definitive-agreement-to-acquire-aramids-business-including-kevlar-and-nomex-brands-from-dupont/)
