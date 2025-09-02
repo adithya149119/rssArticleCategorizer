@@ -1,0 +1,8 @@
+- [DeMeco Ryans Drops Critical Injury Update on Major Texans Trade Acquisition](https://www.ledger-enquirer.com/sports/article311931305.html)
+- [India to Finalize 1 Lakh Crore Submarine Acquisition Projects by 2026](https://news.ssbcrack.com/india-to-finalize-%e2%82%b91-lakh-crore-submarine-acquisition-projects-by-2026/)
+- [South Koreas HD HHI and HD Hyundai Mipo make power move with merger decision](https://www.manifoldtimes.com/news/south-koreas-hd-hhi-and-hd-hyundai-mipo-make-power-move-with-merger-decision/)
+- [Chemical stock jumps 9% after board approves acquisition of HNPCLs thermal power operations](https://tradebrains.in/chemical-stock-jumps-9-after-board-approves-acquisition-of-hnpcls-thermal-power-operations/)
+- [Patria has completed the acquisition of ILIAS Solutions](https://news.cision.com/patria-group/r/patria-has-completed-the-acquisition-of-ilias-solutions,c4224593)
+- [Exactly How to Leverage Pay Per Call for Customer Acquisition](https://joyceqdrc344787.thezenweb.com/exactly-how-to-leverage-pay-per-call-for-customer-acquisition-75343499)
+- [AEQUITA Finalizes Acquisition of JTEKTs European Needle Roller Bearing Business](https://www.bearing-news.com/aequita-finalizes-acquisition-of-jtekts-european-needle-roller-bearing-business/)
+- [ABNTB-PNBAC1-2025-01 Harbor Tugboat Acquisition Project of the Philippine Navy](http://www.phdefresource.com/2025/08/abntb-pnbac1-2025-01-harbor-tugboat.html)
