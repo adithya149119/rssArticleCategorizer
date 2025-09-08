@@ -1,0 +1,6 @@
+- [Modern Wealth Expanding National Reach With Acquisition Of $1.1 Billion Firm PSF/Galloway](https://pulse2.com/modern-wealth-expanding-national-reach-with-acquisition-of-1-1-billion-firm-psf-galloway/)
+- [Whither Defence Acquisition Reform Now? Vanguard](https://vanguardcanada.com/whither-defence-acquisition-reform-now/)
+- [Malaysia Evaluates Alternatives Amid Delays in Kuwait F-18 Jet Acquisition](https://turkiyenewupdates.com/malaysia-evaluates-alternatives-amid-delays-in-kuwait-f-18-jet-acquisition/)
+- [Peraso Stock Soars on Mobix Labs Sweetened Cash-and-Stock Acquisition Offer](https://www.newstrenders.com/2025/09/07/peraso-stock-soars-on-mobix-labs-sweetened-cash-and-stock-acquisition-offer/)
+- [Okta to Acquire Axiom Security](https://www.channel-impact.com/okta-to-acquire-axiom-security/)
+- [Frigate (Full Complement) Acquisition Project of the Philippine Navy](https://www.phdefresource.com/2025/09/frigate-full-complement-acquisition.html)
