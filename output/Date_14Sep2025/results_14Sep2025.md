@@ -1,0 +1,6 @@
+- [Diplomatic-Economic Acquisition](https://joshwillger.blogspot.com/2025/09/proposal-for-diplomatic-economic.html)
+- [HOPE Therapeutics Expands in Florida With Acquisition of Dura Medical](https://www.mychesco.com/a/news/regional/hope-therapeutics-expands-in-florida-with-acquisition-of-dura-medical/)
+- [CRFS becomes part of Motorola with Silvus acquisition](https://www.securityworldmarket.com/int/News/Business-News/crfs-becomes-part-of-motorola-with-silvus-acquisition1)
+- [UK Approves IonQ's Acquisition of Oxford Ionics with Key Safeguards (2025)](https://ijustit.com/article/uk-approves-ionq-s-acquisition-of-oxford-ionics-with-key-safeguards)
+- [US Targets Chinese Firms Over SMIC Chip Acquisition, ETTelecom](https://telecom.economictimes.indiatimes.com/news/devices/us-targets-chinese-firms-over-smic-chip-acquisition/123864912)
+- [Bitcoin Miner Hut 8 Beats Some Merger Disclosure Suit Claims](https://www.law360.com/classaction/articles/2387589/bitcoin-miner-hut-8-beats-some-merger-disclosure-suit-claims)
