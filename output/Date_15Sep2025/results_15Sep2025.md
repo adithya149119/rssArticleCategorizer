@@ -1,0 +1,3 @@
+- [Rheinmetall to expand into naval shipbuilding with NVL acquisition](https://nordot.app/1340146619156742404)
+- [Can Americans Acquire Property Throughout Mexico?](https://maemfsf399719.blogocial.com/can-americans-acquire-property-throughout-mexico-73131970)
+- [Announces Heads of Agreement for the Acquisition of Freightmaster...](https://crweworld.com/article/news-provided-by-access-newswire/3712803/american-heritage-international-inc-announces-heads-of-agreement-for-the-acquisition-of-freightmaster-semi-trailers-)
