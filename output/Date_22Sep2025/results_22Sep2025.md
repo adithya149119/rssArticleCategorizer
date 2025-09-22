@@ -1,0 +1,2 @@
+- [Pakistan faces another setback from its close ally! Dream to acquire C](https://dailyhunt.in/news/india/english/indiaenglish-epaper-india/pakistan+faces+another+setback+from+its+close+ally+dream+to+acquire+chinese+fighter+jet+j+35+in+limbo+unlikely+to+arrive+by+2030+experts+say+-newsid-n682082548)
+- [Wizards' Ideal Trade Target Identified: Perfect Acquisition Awaiting Completion](https://news-nba.com/wizards-have-found-the-perfect-trade-target-just-waiting-to-be-acquired/)
