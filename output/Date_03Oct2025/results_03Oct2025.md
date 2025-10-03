@@ -1,0 +1,3 @@
+- [Yankees $70M Acquisition Earns Derek Jeter Stripes in Bronx Defense After Insane Play vs Red Sox](https://www.essentiallysports.com/mlb-baseball-news-yankees-seventy-m-acquisition-earns-derek-jeter-stripes-in-bronx-defense-after-insane-play-vs-red-sox/)
+- [The IPO Buzz: Range Capital Acquisition Corp. II (RNGTU) Raises $200 Million](https://www.iposcoop.com/the-ipo-buzz-range-capital-acquisition-corp-ii-rngtu-raises-200-million/)
+- [...Health, LLC Announce Strategic Merger](https://globalbusinesswatch.com/article/854702558-df-crosley-s-livestock-disease-prevention-products-and-basic-animal-health-llc-announce-strategic-merger)
