@@ -1,0 +1,5 @@
+- [...defence officials back F-35 acquisition as prime minister weighs full procurement...](https://www.flightglobal.com/fixed-wing/top-canadian-defence-officials-back-f-35-acquisition/164829.article)
+- [Runway Growth Finance Corp. to Acquire SWK Holdings Corporation](https://www.benzinga.com/pressreleases/25/10/g48138812/runway-growth-finance-corp-to-acquire-swk-holdings-corporation)
+- [...transformation, counter-drones, and acquisition...](https://www.defenseone.com/policy/2025/10/amid-shutdown-army-will-do-its-best-talk-transformation-counter-drones-and-acquisition-reform/408720/)
+- [M42 Announces an Agreement to Acquire Stake in Drone Defense Company Epirus](http://www.nashvilleherald.com/news/278627679/m42-announces-an-agreement-to-acquire-stake-in-drone-defense-company-epirus)
+- [Mike Lindell Continues Legal Battle with Dominion After Settlement Before Acquisition Archyde](https://www.archyde.com/mike-lindell-continues-legal-battle-with-dominion-after-settlement-before-acquisition/)
