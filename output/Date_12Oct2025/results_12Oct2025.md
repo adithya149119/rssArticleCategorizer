@@ -1,0 +1,6 @@
+- [THEON plans to acquire 9.8% stake in Exosens](https://www.berndailypress.com/article/857367454-theon-plans-to-acquire-9-8-stake-in-exosens)
+- [Sri Lankan government moves to acquire Tamil-owned land in Jaffna for navy use](https://www.tamilguardian.com/content/sri-lankan-government-moves-acquire-tamil-owned-land-jaffna-navy-use)
+- [Theon International to acquire 9.8% stake in Exosens for 268.7 million](https://uk.investing.com/news/company-news/theon-international-to-acquire-98-stake-in-exosens-for-2687-million-93CH-4300789)
+- [THEON plans to acquire 9.8% stake in Exosens GlobeNewswire | Theon International PLC...](https://smb.lagrangenews.com/article/THEON-plans-to-acquire-98percent-stake-in-Exosens?storyId=68ea2b79dba2c90e475565dd)
+- [THEON's Strategic Move to Acquire Stake in Exosens SA](https://investorshangout.com/theons-strategic-move-to-acquire-stake-in-exosens-sa-419409-/)
+- [THEON Pursues Acquisition of Significant Stake in Exosens](https://investorshangout.com/theon-pursues-acquisition-of-significant-stake-in-exosens-419408-/)
