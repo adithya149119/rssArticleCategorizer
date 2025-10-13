@@ -1,0 +1,4 @@
+- [Canadas Fighter Jet Acquisition: Gripen E Talks and F-35 Alternatives](https://www.world-today-news.com/canadas-fighter-jet-acquisition-gripen-e-talks-and-f-35-alternatives/)
+- [THEON to host Investor Call on stake acquisition in Exosens](https://live.euronext.com/en/products/equities/company-news/2025-10-12-theon-host-investor-call-stake-acquisition-exosens)
+- [...negotiations with Leonardo for the acquisition of new AW159 Wildcat anti-submarine warfare (ASW)...](https://www.zona-militar.com/en/2025/10/12/the-philippine-navy-is-in-negotiations-with-leonardo-for-the-acquisition-of-new-aw159-wildcat-anti-submarine-warfare-asw-helicopters/)
+- [EarlyHealth Group Acquires CYB3R, Gulfs Fastest-Growing Cybersecurity Firm](https://www.globenewswire.com/news-release/2025/10/12/3165235/0/en/EarlyHealth-Group-Acquires-CYB3R-Gulf-s-Fastest-Growing-Cybersecurity-Firm.html)
