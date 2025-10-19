@@ -1,0 +1,5 @@
+- [49ers Trade Rumors: Former Exec Targets Arden Key as Potential Acquisition (2025)](https://tongilpyongron.com/article/49ers-trade-rumors-former-exec-targets-arden-key-as-potential-acquisition)
+- [$3.5M Richer Curt Cignetti Wont Let Go of His 36-YO Acquisition for One Unavoidable Reason](https://www.essentiallysports.com/ncaa-college-football-news-three-and-half-m-richer-curt-cignetti-wont-let-go-of-his-thirty-six-yo-acquisition-for-one-unavoidable-reason/)
+- [Petz (PETZ3) and Cobasi defend merger before Cade and allege loss of space for marketplaces](http://globalhappenings.com/markets/724728.html)
+- [Instant Target Acquisition with Red Dots](https://sachinyade726539.pointblog.net/instant-target-acquisition-with-red-dots-85748862)
+- [Modernizing Army Software Acquisition: Panel Discussion with DASA(SAR) Margaret Boatner and PEO...](https://www.csis.org/events/modernizing-army-software-acquisition-panel-discussion-dasasar-margaret-boatner-and-peo-iews)
