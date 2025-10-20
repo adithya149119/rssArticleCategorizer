@@ -1,0 +1,8 @@
+- [...Brother Shot Dead, Levies Protest Merger with...](https://dailykiran.com/three-pakistani-army-officers-killed-in-bla-attacks-in-balochistan-mlas-brother-shot-dead-levies-protest-merger-with-police/)
+- [EV Resources Fast-Tracks Antimony Production with Acquisition of Tecomatlan Processing Plant](http://www.finnewsnetwork.com.au/archives/finance_news_network2972236.html)
+- [...for Business Growth and Talent Acquisition in...](https://omanet.om/en/news/labour/rao-starts-assessment-of-new-recruits/)
+- [MVR 1.8bn exhausted again, to acquire three drones](https://raajje.mv/172102)
+- [How North America Data Acquisition System Market Is Creating a New Era of Industry Transformation](http://prsync.com/consegic-business-intelligence/how-north-america-data-acquisition-system-market-is-creating-a-new-era-of-industry-transformation-4956177/)
+- [Taiwan Authorizes USD1.4B Drone Acquisition Plan](https://menafn.com/1110214409/Taiwan-Authorizes-USD14B-Drone-Acquisition-Plan)
+- [Administrative Assistant, Talent Acquisition](https://www.glassdoor.co.uk/job-listing/administrative-assistant-talent-acquisition-netflix-JV_IC1146821_KO0,43_KE44,51.htm?jl=1009859378341)
+- [Lyten Completes Acquisition of Northvolt BESS Manufacturing Facility in Poland](https://cleantechnica.com/2025/10/18/lyten-completes-acquisition-of-northvolt-bess-manufacturing-facility-in-poland/)
