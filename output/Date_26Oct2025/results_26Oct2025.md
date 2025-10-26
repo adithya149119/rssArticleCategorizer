@@ -1,0 +1,3 @@
+- [Saudi Electricity Company signs agreement to acquire a 30% stake in NAMI](https://www.arabnews.com/node/2620213/corporate-and-sponsored-content)
+- [...Interested in Semenyo's Potential Acquisition ...](https://www.archyde.com/bournemouth-seeks-75m-for-bargain-signing-clubs-interested-in-semenyos-potential-acquisition/)
+- [Space Asset Acquisition S1 IPO registration | SAAQ 24 Oct 25](https://capedge.com/filing/2091222/0001213900-25-102277/S-1)
