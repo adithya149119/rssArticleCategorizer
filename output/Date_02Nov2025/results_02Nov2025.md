@@ -1,0 +1,5 @@
+- [Major packages in Lao Cai province after 4 months of merger](https://news.laodong.vn/kinh-doanh/nhung-goi-thau-lon-tai-tinh-lao-cai-sau-4-thang-sap-nhap-1601646.ldo)
+- [Voyager Technologies Expanding U.S. Space Propulsion Reach Through ExoTerra Acquisition](https://pulse2.com/voyager-technologies-expanding-u-s-space-propulsion-reach-through-exoterra-acquisition/)
+- [Cabello accuses Baltazar Porras of fraud in the acquisition of a house in El Hatillo](https://latin-american.news/cabello-accuses-baltazar-porras-of-fraud-in-the-acquisition-of-a-house-in-el-hatillo/)
+- [Argentina Plans to Acquire 72 Self-Propelled Artillery Units to Modernize Army Firepower.](https://global.tendernews.com/tender-news.aspx?s=7310&t=Argentina-Plans-to-Acquire-72-Self-Propelled-Artillery-Units-to-Modernize-Army-Firepower.)
+- [Willkie Advises Karman Space & Defense on Acquisition of Five Axis Industries](https://dfwliving.com/willkie-advises-karman-space-defense-on-acquisition-of-five-axis-industries/)
