@@ -1,0 +1,7 @@
+- [Should Green Bay Packers Acquire a Cornerback Before NFL Trade Deadline?](https://emegypt.net/1029381)
+- [...Years After Commercial and Hanil Merger - The Asia Business...](http://www.asiae.co.kr/en/article/finance/2025110311274899437)
+- [Rocket Labs Mynaric Acquisition Challenges Sovereignty Norms](https://www.el-balad.com/6753754)
+- [Summer Moon Capital Statement on FIRB Blocking of Mayne Pharma-Cosette Acquisition](https://www.nationaltribune.com.au/summer-moon-capital-statement-on-firb-blocking-of-mayne-pharma-cosette-acquisition/)
+- [Rocket Labs proposed acquisition of Mynaric faces sovereignty test News Flash](https://newsflash.one/2025/11/02/rocket-labs-proposed-acquisition-of-mynaric-faces-sovereignty-test/)
+- [Earnings call transcript: Vodafone Q1 2025 sees revenue growth and merger impact](https://in.investing.com/news/transcripts/earnings-call-transcript-vodafone-q1-2025-sees-revenue-growth-and-merger-impact-93CH-5078947)
+- [Rocket Labs proposed acquisition of Mynaric faces sovereignty test](https://spacenews.com/rocket-labs-proposed-acquisition-of-mynaric-faces-sovereignty-test/)
