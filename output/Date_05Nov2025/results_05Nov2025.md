@@ -1,0 +1,6 @@
+- [PennAero and Tinicum Announce Acquisition of TriMas Aerospace](https://www.citybiz.co/article/768065/pennaero-and-tinicum-announce-acquisition-of-trimas-aerospace/)
+- [...Flawed System of US Citizenship Acquisition and...](https://realfreenews.blogspot.com/2025/11/undermining-american-sovereignty-flawed.html)
+- [Skyworks Solutions Soars Past Q4 Estimates, Forges New Horizon with Qorvo Merger](https://kbjr.marketminute.com/article/tokenring-2025-11-4-skyworks-solutions-soars-past-q4-estimates-forges-new-horizon-with-qorvo-merger)
+- [Kratos Adding To Satellite Communications Suite With Acquisition Of Orbit Technologies](https://www.defensedaily.com/kratos-adding-to-satellite-communications-suite-with-acquisition-of-orbit-technologies/business-financial/)
+- [Diaz-Balart, Gimenez, and Mills Urge U.S. Army to Keep Florida as Home of Army Acquisition HQ](https://mariodiazbalart.house.gov/media-center/press-releases/diaz-balart-gimenez-and-mills-urge-us-army-keep-florida-home-army)
+- [Canopy Aerospace & Defense Expanding Global Reach With Acquisition Of Tods Technology](https://pulse2.com/canopy-aerospace-defense-expanding-global-reach-with-acquisition-of-tods-technology/)
