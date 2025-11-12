@@ -1,0 +1,7 @@
+- [Secretary Hegseth Got a Lot Right but had a Crucial Miss in His Call for Acquisition Reform](https://www.isstories.com/2025/11/12/secretary-hegseth-got-a-lot-right-but-had-a-crucial-miss-in-his-call-for-acquisition-reform/)
+- [Check Point Software Technologies completes acquisition of Lakera](https://www.crn.in/news/check-point-software-technologies-completes-acquisition-of-lakera/)
+- [German Army plans to acquire camouflage blankets for tanks](https://carroemotos.com.br/german-army-plans-to-acquire-camouflage-blankets-for-tanks/)
+- [Air T Welcomes Creditor Support for Rex Acquisition](https://www.gurufocus.com/news/3202596/air-t-welcomes-creditor-support-for-rex-acquisition)
+- [Eagles trade acquisition considering retirement before playing a single down](https://us.headtopics.com/news/eagles-trade-acquisition-considering-retirement-before-75694393)
+- [The IPO Buzz: Evolution Global Acquisition (EVOXU) Climbs After Upsized IPO](https://www.iposcoop.com/the-ipo-buzz-evolution-global-acquisition-evoxu-climbs-after-upsized-ipo/)
+- [Prime Minister: Prioritize surplus houses and land after merger for education and healthcare](https://www.vietnam.vn/en/thu-tuong-uu-tien-nha-dat-doi-du-sau-sap-nhap-cho-giao-duc-y-te)
