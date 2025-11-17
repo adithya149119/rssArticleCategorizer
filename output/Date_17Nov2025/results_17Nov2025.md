@@ -1,0 +1,5 @@
+- [...Bill for Fraudulent Fintech Acquisition, Seeks Court Relief ...](https://www.greenground.it/2025/11/16/jpmorgan-battles-115m-legal-bill-for-fraudulent-fintech-acquisition-seeks-court-relief/)
+- [EXCLUSIVE: The Army is changing its acquisition structure. Here are the details.](https://firstpiper.com/2025/11/16/exclusive-the-army-is-changing-its-acquisition-structure-here-are-the-details/)
+- [...Button and Unveils Historic Acquisition...](https://ts2.tech/en/weapons-makers-conned-the-u-s-army-dan-driscoll-targets-47000-black-hawk-button-and-unveils-historic-acquisition-shake%e2%80%91up/)
+- [Acquisition Online Music Distribution Digital Music Distribution Music Distribution NET](https://musicdistribution.net/acquisition-online/)
+- [Hegseth has announced some acquisition reforms that could exacerbate War Department waste and...](https://markmgiese.blogspot.com/2025/11/hegseth-has-announced-some-acquisition.html)
