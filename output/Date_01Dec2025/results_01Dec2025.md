@@ -1,0 +1,8 @@
+- [Questerre to acquire remaining stake in Red Leaf Resources](https://www.investing.com/news/company-news/questerre-to-acquire-remaining-stake-in-red-leaf-resources-93CH-4382672)
+- [The smart Trick of Diverse Backlink Acquisition Methods That Nobody is Talking About](https://jaredumpgw.blogocial.com/the-smart-trick-of-diverse-backlink-acquisition-methods-that-nobody-is-talking-about-74604019)
+- [Ondas Advances Autonomous Defense Strategy With Acquisition Of Roboteam](https://pulse2.com/ondas-advances-autonomous-defense-strategy-with-acquisition-of-roboteam/)
+- [LevelBlue Finalizes Acquisition Of Cybereason](https://pulse2.com/levelblue-finalizes-acquisition-of-cybereason/)
+- [Base Camp Connect Secures Major Acquisition Contract with the CAF](https://vanguardcanada.com/base-camp-connect-secures-major-acquisition-contract-with-the-caf/)
+- [Pentagon Acquisition Overhaul: A Revolutionary Shift | The Cipher Brief](https://www.archynewsy.com/pentagon-acquisition-overhaul-a-revolutionary-shift-the-cipher-brief/)
+- [Converging Agendas: Defense Acquisition Reform, 20 November 2025](https://www.unisci.es/converging-agendas-defense-acquisition-reform-20-november-2025/)
+- [...To Su-57, NO To GCAP! Indias Acquisition Of Russian Stealth Jets May Hinge On Adversary's 5th-Gen...](https://www.eurasiantimes.com/yes-to-su-57-no-to-gcap-indias-russia/)
