@@ -1,0 +1,4 @@
+- [...Greenlights Italys Acquisition of 100 Advanced JASSM-ER Missiles, Boosting Air Defense and...](https://www.travelandtourworld.com/news/article/us-greenlights-italys-acquisition-of-100-advanced-jassm-er-missiles-boosting-air-defense-and-regional-security-in-europe/)
+- [How a massive TV merger could raise bills and test Trump](https://www.conservativenewsdaily.net/breaking-news/how-a-massive-tv-merger-could-raise-bills-and-test-trump/)
+- [When is the acquisition program baseline prepared?](https://moviecultists.com/when-is-the-acquisition-program-baseline-prepared)
+- [Instantaneous Target Acquisition with Red Dots](https://sabrinaufqi929598.pointblog.net/instantaneous-target-acquisition-with-red-dots-87647173)
