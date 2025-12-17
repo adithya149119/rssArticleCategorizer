@@ -1,0 +1,8 @@
+- [Peruvian Air Force 24 Fighter Jets Acquisition Faces Procurement Scrutiny](https://www.aeronewsjournal.com/2025/12/peruvian-air-force-24-fighter-jets.html)
+- [Nigeria to acquire 24 M-346 fighter jets in 1.2bn deal with Italy](https://newsclickng.com/news/nigeria-to-acquire-24-m-346-fighter-jets-in-e1-2bn-deal-with-italy/)
+- [Tactical Resources Announces Shareholder Approval of Arrangement With Plum Acquisition Corp. III](https://www.gurufocus.com/news/4072680/tactical-resources-announces-shareholder-approval-of-arrangement-with-plum-acquisition-corp-iii)
+- [Nigeria Acquires 24 M-346FA Fighter Jets, Largest-Ever Military Aircraft Acquisition in West Africa](https://www.blogarama.com/blogging-blogs/1418149-versenews-nigeria-blog/71470101-acquires-346fa-fighter-jets-largest-ever-military-aircraft-acquisition-west-africa)
+- [Metromont's Acquisition of Heldenfels: A New Era in Concrete Manufacturing](https://investorshangout.com/metromonts-acquisition-of-heldenfels-a-new-era-in-concrete-manufacturing-489866-/)
+- [Cyderes Acquires Lucidum to Develop Identity-Centric Security Data Fabric for Modern Cyber Defense](https://www.globenewswire.com/news-release/2025/12/16/3206294/0/en/Cyderes-Acquires-Lucidum-to-Develop-Identity-Centric-Security-Data-Fabric-for-Modern-Cyber-Defense.html)
+- [Kongsberg bolsters defense holdings with acquisition of U.S. missile firm Zone 5](https://seekingalpha.com/news/4532196-kongsberg-bolsters-defense-holdings-with-acquisition-of-u-s-missile-firm-zone-5?source=generic_rss)
+- [Germany set to approve 50bn in military purchases](https://www.ft.com/content/30fbb68d-aaaf-405a-b50d-a275d10ce59a)
