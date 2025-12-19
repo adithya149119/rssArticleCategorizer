@@ -1,0 +1,4 @@
+- [...Approving Arrangement With Plum Acquisition Corp...](https://xpr.media/story/500147/tactical-resources-announces-receipt-of-final-order-approving-arrangement-with-plum-acquisition-corp-iii/)
+- [Air T, Inc. Announces Closing of Regional Express Acquisition](https://prwire.com.au/pr/126240/air-t-inc-announces-closing-of-regional-express-acquisition)
+- [Space Acquisition Leaders Concerned SBIR Lapse Could Hurt Innovation Pipeline](https://www.airandspaceforces.com/space-acquisition-leaders-concerned-sbir-lapse-could-hurt-innovation-pipeline/)
+- [VisionWave Holdings Acquires Solar Drone Ltd., Advancing Autonomous Systems for Defense and Critical Infrastructure](https://www.globenewswire.com/news-release/2025/12/18/3207704/0/en/VisionWave-Holdings-Acquires-Solar-Drone-Ltd-Advancing-Autonomous-Systems-for-Defense-and-Critical-Infrastructure.html)
