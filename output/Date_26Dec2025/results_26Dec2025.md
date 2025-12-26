@@ -1,0 +1,5 @@
+- [Top Stories 2025: International Naval Acquisition](https://www.archynewsy.com/top-stories-2025-international-naval-acquisition/)
+- [Product Tanker Giant Hafnia Launches Plan for Mega-Merger with Torm](https://plawiuk.blogspot.com/2025/12/takeover-offers-prompt-debate-over-zims.html)
+- [...Strategic Pivot and the Celestial AI Acquisition](https://wgem.marketminute.com/article/predictstreet-2025-12-25-the-nervous-system-of-ai-a-deep-dive-into-marvell-technologys-mrvl-strategic-pivot-and-the-celestial-ai-acquisition)
+- [Rajasthan HC approves land acquisition for military airbase project near Sriganganagar amid farmer...](https://www.financialexpress.com/india-news/rajasthan-hc-approves-land-acquisition-for-iaf-airbase-in-sriganganagar-amid-farmer-protestnbsp/4088244/)
+- [Rajasthan HC approves land acquisition for military airbase project near Sriganganagar](https://www.tribuneindia.com/news/rajasthan/rajasthan-hc-approves-land-acquisition-for-military-airbase-project-near-sriganganagar/)
