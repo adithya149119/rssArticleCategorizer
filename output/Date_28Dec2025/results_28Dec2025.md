@@ -1,0 +1,6 @@
+- [...Merger: Transforming U.S. Combatant Commands with Integrated Intelligence and Dual CivilianMilitary...](https://www.archyde.com/beyond-the-merger-transforming-u-s-combatant-commands-with-integrated-intelligence-and-dual-civilian-military-leadership/)
+- [KNPC advances KIPIC merger, expands operations in 2025 | Kuwait Times Newspaper](https://kuwaittimes.com/article/37715/kuwait/knpc-advances-kipic-merger-expands-operations-in-2025/)
+- [Merger of civillian enclaves in Secunderabad Cantonment with expanded GHMC remains unfinished](http://news.indzs.com/merger-of-civillian-enclaves-in-secunderabad-cantonment-with-expanded-ghmc-remains-unfinished-390271.html)
+- [Cardinals make surprise special teams acquisition ahead of Week 17 matchup](https://raisingzona.com/cardinals-make-surprise-special-teams-acquisition-ahead-of-week-17-matchup-01kdf20kz28w)
+- [tendernews acquisition of material and standard service for installation and...](https://global.tendernews.com/tender-info.aspx?r=3980716251227&s=0)
+- [acquisition of AQUATIC RESCUE EQUIPMENT to support the Civil Defense](https://global.tendernews.com/tender-info.aspx?r=3978616251227&s=0)
