@@ -1,0 +1,4 @@
+- [Defence stocks HAL, BEL, others in focus ahead Defence Acquisition Council meet](https://29ru.net/english/417812462/)
+- [Russia announced its acquisition of a series of strategic urban areas in Donetsk and Zaporizhzhia](https://observatorial.com/news/world/1573598/russia-announced-its-acquisition-of-a-series-of-strategic-urban-areas-in-donetsk-and-zaporizhzhia/)
+- [Mythwright's Thronefall Acquisition: What's Next for the Tower Defense Game? (2025)](https://pmyo.net/article/mythwright-s-thronefall-acquisition-what-s-next-for-the-tower-defense-game)
+- [ServiceNowaTMs $12B Acquisition Spree: A Masterclass in Platform Defense](https://www.blogarama.com/entrepreneurs-blogs/1295560-fourweekmba-blog/71854127-servicenowas-12b-acquisition-spree-masterclass-platform-defense)
