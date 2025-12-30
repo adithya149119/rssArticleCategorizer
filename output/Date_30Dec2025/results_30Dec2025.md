@@ -1,0 +1,2 @@
+- [Potential Foreign Acquisition of ETSs TOEFL Exam Could Trigger Heightened CFIUS Scrutiny](https://news.richmondnewsnow.com/story/756445/potential-foreign-acquisition-of-etss-toefl-exam-could-trigger-heightened-cfius-scrutiny.html)
+- [...Nasdaq: WKEY) and Columbus Acquisition Corp. (Nasdaq: COLA) Announce Confidential Submission of...](https://innovationandentrepreneursnews.com/article/879046618-wisekey-international-holding-ag-nasdaq-wkey-and-columbus-acquisition-corp-nasdaq-cola-announce-confidential-submission-of-draft-registration)
