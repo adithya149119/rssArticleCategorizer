@@ -1,0 +1,6 @@
+- [TransDigm's Strategic Acquisition of Stellant Systems Expands Portfolio](https://investorshangout.com/transdigms-strategic-acquisition-of-stellant-systems-expands-portfolio-495827-/)
+- [ANALYST WARNING - NETFLIX / WARNER MERGER - UNDER REGULATORY ENFORCEMENT](https://www.shockya.com/news/2025/12/31/analyst-warning-netflix-warner-merger-under-regulatory-enforcement/)
+- [BigBear.ai Acquisition of Ask Sage - Maxthon](https://blog.maxthon.com/2026/01/01/55547/)
+- [BigBear.ai Finalizes $250M Acquisition of Ask Sage](https://www.01net.it/bigbear-ai-finalizes-250m-acquisition-of-ask-sage/)
+- [$BBAI BigBear.ai Finalizes $250M Acquisition of Ask Sage](https://www.otcdynamics.com/bbai-bigbear-ai-finalizes-250m-acquisition-of-ask-sage/)
+- [BigBear.ai completes $250 million acquisition of Ask Sage](https://www.investing.com/news/company-news/bigbearai-completes-250-million-acquisition-of-ask-sage-93CH-4426923)
