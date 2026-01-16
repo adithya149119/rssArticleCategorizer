@@ -1,0 +1,7 @@
+- [Greenlands Sovereignty in Question as US Rekindles Acquisition Ambitions](https://112.ua/en/ssa-znovu-hocut-grenlandiu-comu-zustrilisa-z-danieu-ta-so-vidpovila-evropa-133100)
+- [US acquisition of Greenland out of the question: Denmark](https://en.bd-pratidin.com/international/2026/01/16/54967)
+- [Site acquisition manager, lockers by quadient (open)](https://www.jobijoba.it/annunci-di-lavoro/13/05b7496b702c5eba9268eb8f52441322)
+- [...'impact Trump's goal of Greenland acquisition at...](https://www.wionews.com/world/white-house-doubles-down-insists-european-troops-don-t-impact-trump-s-goal-of-greenland-acquisition-at-all-1768529366586)
+- [...$112 Million Gambit: The QCEX Acquisition and the High-Stakes Battle for the U.S...](http://business.inyoregister.com/inyoregister/article/predictstreet-2026-1-16-polymarkets-112-million-gambit-the-qcex-acquisition-and-the-high-stakes-battle-for-the-us-market)
+- [European troops arrive in Greenland as Trump holds firm on acquisition](https://au.headtopics.com/news/european-troops-arrive-in-greenland-as-trump-holds-firm-on-78447590)
+- [...Announce Potential $200 Million Acquisition to Build Secure Silicon Quantum...](https://quantumcomputingreport.com/sealsq-and-quobly-announce-potential-200-million-acquisition-to-build-secure-silicon-quantum-systems/)
