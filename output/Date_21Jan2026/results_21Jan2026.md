@@ -1,0 +1,8 @@
+- [Kroger Completes Albertsons Acquisition: Grocery Giant Formed | November 2023](https://www.memesita.com/kroger-completes-albertsons-acquisition-grocery-giant-formed-november-2023/)
+- [Greenland: Europe Strengthens Defenses Amid US Acquisition Push](https://parsers.vc/news/260121-greenland--europe-strengthens-defenses-amid/)
+- [Chuck Hagel Reveals Financial Implications of Trumps Greenland Acquisition Ambitions](https://internewscast.com/news/us/chuck-hagel-reveals-financial-implications-of-trumps-greenland-acquisition-ambitions/)
+- [The US Acquisition Of Greenland Could Lead To A Deal Over Canadas Arctic Islands](https://eestieest.com/the-us-acquisition-of-greenland-could-lead-to-a-deal-over-canadas-arctic-islands/)
+- [Congress pushes back on parts of DoDs acquisition reform agenda](https://federalnewsnetwork.com/congress/2026/01/congress-pushes-back-on-parts-of-dods-acquisition-reform-agenda/)
+- [Trump to Discuss Greenland Acquisition at World Economic Forum](https://us.headtopics.com/news/trump-to-discuss-greenland-acquisition-at-world-economic-78651720)
+- [Trump Administration Intensifies Greenland Acquisition Push, Cites National Security Concerns](https://us.headtopics.com/news/trump-administration-intensifies-greenland-acquisition-78650040)
+- [Nuburu expands European footprint with Lyocon acquisition, Orbit stake](https://www.tipranks.com/news/company-announcements/nuburu-expands-european-footprint-with-lyocon-acquisition-orbit-stake)
