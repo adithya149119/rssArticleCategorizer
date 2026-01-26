@@ -1,0 +1,6 @@
+- [Eaton (NYSE: ETN) completes $1.55 billion acquisition of Ultra PCS Limited](https://landoncapital.net/eaton-nyse-etn-completes-1-55-billion-acquisition-of-ultra-pcs-limited/)
+- [How Eaton's Ultra PCS Acquisition Fuels Aerospace Growth & Boosts Profits](https://aktiensensor.com/articles/how-eatons-ultra-pcs-acquisition-fuels-aerospace-growth--boosts-profits/)
+- [Europe & America Data Acquisition System Industry Market Growth & Opportunity Analysis | AI...](http://prsync.com/consegic-business-intelligence/europe--america-data-acquisition-system-industry-market-growth--opportunity-analysis--ai-modeling-smart-tech-adoption--global-fo-5099952/)
+- [Trump Admin To Acquire Stake In Usa Rare Earth For $1.6 Billion: Report | Usa Rare...](https://www.benzinga.com/markets/equities/26/01/50117543/trump-admin-to-acquire-stake-in-usa-rare-earth-for-1-6-billion-report)
+- [US govt to acquire 10% stake in USA Rare Earth, ramps up efforts for domestic production](https://creativebharat.com/us-govt-to-acquire-10-stake-in-usa-rare-earth-ramps-up-efforts-for-domestic-production/)
+- [Greenland Minister Dismisses Us Acquisition Claims | Daily Weby](https://www.memesita.com/greenland-minister-dismisses-us-acquisition-claims-daily-weby/)
