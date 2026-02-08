@@ -1,0 +1,8 @@
+- [University of Utah celebrates acquisition of 'LOVE' sculpture](https://www.deseret.com/utah/2026/02/07/love-sculpture-moves-to-university-of-utah-campus/)
+- [...Power End Markets with Strategic Acquisition of Trillium Flow Technologies Valves Division Eagle...](https://lifestyle.myeaglecountry.com/story/45069/flowserve-expands-leadership-in-nuclear-and-other-power-end-markets-with-strategic-acquisition-of-trillium-flow-technologies-valves-division/)
+- [HEICO Corporation Completes EthosEnergy Accessories and Components Acquisition](https://lifestyle.pierrecountry.com/story/42905/heico-corporation-completes-ethosenergy-accessories-and-components-acquisition/)
+- [One Command, One Strategy: Iran Reopens Debate On Army-IRGC Merger](https://www.eurasiareview.com/08022026-one-command-one-strategy-iran-reopens-debate-on-army-irgc-merger/)
+- [Bundelkhand Industrial Revolution: 23K Acres Acquisition Hits High Gear](https://thechhattisgarh.com/india/bundelkhand-industrial-revolution-23k-acres-acquisition-hits-high-gear/)
+- [UP Speeds Up 23K Acres Land Acquisition for Bundelkhand Industrial Hub](https://theworldopinion.com/india/up-speeds-up-23k-acres-land-acquisition-for-bundelkhand-industrial-hub/)
+- [Wolves Analysis: Breaking Down Trade Deadline Acquisition Ayo Dosunmu](https://www.canishoopus.com/timberwolves-analysis/64363/nba-trade-deadline-ayo-dosunmu-analysis)
+- [Canada Opens Consulate in Greenland as Trump Revives Acquisition Proposal](https://lavocedinewyork.com/en/news/2026/02/07/canada-opens-consulate-in-greenland-as-trump-revives-acquisition-proposal/)
