@@ -1,0 +1,5 @@
+- [Site acquisition team leader](https://www.jobijoba.it/annunci-di-lavoro/13/d27c186d808056a7b2deb0419938309a)
+- [Argenta Talent Acquisition](https://www.cybersecurityintelligence.com/argenta-talent-acquisition-10877.html)
+- [Warriors predicted to acquire $27.6 million ex-Heat forward via buyout one year after trading him](https://www.sportingnews.com/ca/nba/golden-state-warriors/news/warriors-predicted-acquire-276-million-ex-heat-forward-buyout-one-year-after-trading-him/c89212ece6f2d58d82c0fb3a)
+- [New acquisition McCain shine as Thunder down Nets.](https://6island.wordpress.com/2026/02/21/new-acquisition-mccain-shine-as-thunder-down-nets/)
+- [Israel's ZIM Acquired in Landmark Shipping Merger](https://parsers.vc/news/260221-israel-s-zim-acquired-in-landmark-shipping/)
