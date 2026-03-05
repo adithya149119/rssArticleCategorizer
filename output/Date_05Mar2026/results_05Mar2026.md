@@ -1,0 +1,6 @@
+- [...Strategic Insights Into Talent Acquisition Leadership...](https://newswatchunitedkingdom.com/article/897475191-executive-search-headhunting-market-2026-gain-strategic-insights-into-talent-acquisition-leadership-trends)
+- [Structural Faults in the Tesla SolarCity Acquisition and the Burden of Fiduciary Duty](https://telefonorojo.mx/structural-faults-tesla-solarcity-acquisition-burden-fiduciary-duty)
+- [Pacific Avenue Capital Partners Completes Acquisition of U.S. Pow](https://natlawreview.com/press-releases/pacific-avenue-capital-partners-completes-acquisition-us-power-chain-hoist)
+- [Netflix CFO: Non-WBD Acquisition Was Always About Price, Not Politics](https://www.mediaplaynews.com/netflix-cfo-wbd-assets-nice-to-have-at-the-right-price/)
+- [...Council Proposes Rule to Prohibit Acquisition of Semiconductors from China and Countries of Concern...](https://www.jdsupra.com/legalnews/far-council-proposes-rule-to-prohibit-2784982/)
+- [...Avenue Capital Partners Completes Acquisition of U.S. Power Chain Hoist and Chain Business from...](http://www.nashvilleherald.com/news/278902639/pacific-avenue-capital-partners-completes-acquisition-of-us-power-chain-hoist-and-chain-business-from-columbus-mckinnon-and-launches-new-standalone-company-stuart-rush)
