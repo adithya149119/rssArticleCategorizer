@@ -1,0 +1,7 @@
+- [How the Maxx Crosby Acquisition Resets the AFC North Hierarchy](https://www.yardbarker.com/nfl/articles/how_the_maxx_crosby_acquisition_resets_the_afc_north_hierarchy/s1_17198_43564991)
+- [...Greenland Palladium-Gold Deposit Acquisition Through Greenland...](https://pulse2.com/klotho-neurosciences-68-billion-greenland-palladium-gold-deposit-acquisition-through-greenland-mines/)
+- [Quantum Computing Inc. Gains Photonics Capabilities With Luminar Semiconductor Acquisition](https://quantumzeitgeist.com/quantum-computing-inc-luminar-acquisition/)
+- [Heres why Maxx Crosby is the perfect acquisition for the Ravens](https://dose.ca/2026/03/07/heres-why-maxx-crosby-is-the-perfect-acquisition-for-the-ravens/)
+- [Bihar-Bengal Districts Merger Rumors Squashed by Minister](https://reportwire.in/india/bihar/bihar-bengal-districts-merger-rumors-squashed-by-minister/)
+- [Ravens Acquire Maxx Crosby in Major Trade Deal](https://news247planet.com/breaking-ravens-acquire-maxx-crosby-in-major-trade-deal/)
+- [Air Force Acquisition](https://www.csis.org/events/air-force-acquisition)
