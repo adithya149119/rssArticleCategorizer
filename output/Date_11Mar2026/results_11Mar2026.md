@@ -1,0 +1,6 @@
+- [0 Million Increase in Special Pre-Merger Closing Distribution for Monroe Capital Corporation...](https://agreenearthandme.com/article/898639480-monroe-capital-corporation-announces-13-0-million-increase-in-special-pre-merger-closing-distribution-for-monroe-capital-corporation-stockholders)
+- [Anduril Industries Expands Space Defense Program with ExoAnalytic Solutions Acquisition](https://www.binance.com/en/square/post/300284408130578)
+- [Anduril To Acquire ExoAnalytic](https://payloadspace.com/anduril-to-acquire-exoanalytic/)
+- [Seva Mining Corp. Completes Cameron Gold Project Acquisition and Resumes Trading](https://us.headtopics.com/news/seva-mining-corp-completes-cameron-gold-project-80821794)
+- [...American Drone and Defense Company to be Created Through Merger of Powerus and Aureus Greenway...](https://www.innovationandentrepreneursnews.com/article/898612777-new-american-drone-and-defense-company-to-be-created-through-merger-of-powerus-and-aureus-greenway-holdings)
+- [Controlled Thermal Resources and Plum Acquisition Corp. IV Announce Definitive Business Combination...](https://theamericawatch.com/article/898612846-controlled-thermal-resources-and-plum-acquisition-corp-iv-announce-definitive-business-combination-agreement-to-advance-u-s-critical-minerals-and)
