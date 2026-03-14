@@ -1,0 +1,8 @@
+- [Agero Enters into Agreement to Acquire Urgently, for $5.50 in Cash Per Share, Expanding Tech-Driven...](https://www.pressreleasepoint.com/agero-enters-agreement-acquire-urgently-550-cash-share-expanding-tech-driven-roadside-assistance)
+- [DCS expands Beavercreek footprint with acquisition of ARCTOS near Wright-Patt](https://www.mahoningmatters.com/living/article315049885.html)
+- [Seamless data acquisition and real-time spectrum analysis: Aaronia presents...](https://mundogeo.com/en/2026/03/13/seamless-data-acquisition-and-real-time-spectrum-analysis-aaronia-presents-high-end-solutions-at-satellite-in-washington/)
+- [Top IT Talent Acquisition Secrets](https://trendwatchdaily83726.digiblogbox.com/64732310/top-it-talent-acquisition-secrets)
+- [Agero Enters into Agreement to Acquire Urgently, for $5.50 in Cas](https://natlawreview.com/press-releases/agero-enters-agreement-acquire-urgently-550-cash-share-expanding-tech-driven)
+- [Senior Manager, Talent Acquisition](https://www.builtinseattle.com/job/senior-manager-talent-acquisition/8756362)
+- [Volatus Aerospace Completes Acquisition of 100% Ownership of Synergy Aviation](https://www.globenewswire.com/news-release/2026/03/13/3255409/0/en/Volatus-Aerospace-Completes-Acquisition-of-100-Ownership-of-Synergy-Aviation.html)
+- [Volatus Aerospace complete lacquisition dune participation de 100 % dans Synergy Aviation](https://www.globenewswire.com/news-release/2026/03/13/3255409/0/fr/Volatus-Aerospace-compl%C3%A8te-l-acquisition-d-une-participation-de-100-dans-Synergy-Aviation.html)
