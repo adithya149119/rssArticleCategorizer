@@ -1,0 +1,4 @@
+- [A New Beauty Behemoth: Estee Lauder and Puig Confirm $40 Billion Merger Talks](https://wxow.marketminute.com/article/marketminute-2026-3-24-a-new-beauty-behemoth-este-lauder-and-puig-confirm-40-billion-merger-talks)
+- [Army Restructures for Acquisition Speed](https://www.ausa.org/news/army-restructures-acquisition-speed)
+- [...Capabilities with Black Breach Acquisition, Launches Dedicated Cybersecurity...](https://hybridcars.einnews.com/pr_news/901466320/its-expands-cybersecurity-capabilities-with-black-breach-acquisition-launches-dedicated-cybersecurity-team)
+- [...Lauder and Puig Confirm $40 Billion Merger...](https://markets.financialcontent.com/minstercommunitypost/article/marketminute-2026-3-24-a-new-beauty-behemoth-este-lauder-and-puig-confirm-40-billion-merger-talks)
