@@ -1,0 +1,8 @@
+- [Talent Acquisition Manager](https://www.theladders.com/job/talent-acquisition-manager-national-security-technology-accelerator-virtual-travel_86384573)
+- [Cowboys Shock NFL with Arvell Reese Acquisition; Jets Make Bold Moves](https://www.filmogaz.com/205532)
+- [Enhance Client Acquisition with Smart Brand Building for Law Practices in Australia](https://maerhzx044006.webbuzzfeed.com/41022672/enhance-client-acquisition-with-smart-brand-building-for-law-practices-in-australia)
+- [OpenAI Shifts Strategy with Acquisition of Tech News Network TBPN](https://techstrong.ai/articles/openai-shifts-strategy-with-acquisition-of-tech-news-network-tbpn/)
+- [Titans Report Roster Update Following Second Free Agent Acquisition](https://news247planet.com/titans-report-roster-update-following-second-free-agent-acquisition/)
+- [Pilatus Strengthens European Foothold with Acquisition of German Air Alliance](https://aeromorning.com/en/pilatus-strengthens-european-foothold-with-acquisition-of-german-air-alliance/)
+- [Loar Acquisition Highlights Supply Chain Role While Valuation Signals Mixed Picture](https://www.yahoo.com/finance/markets/stocks/articles/loar-acquisition-highlights-supply-chain-031028497.html)
+- [Airborne Target Acquisition Systems Market Growth Report 2026](https://www.thebusinessresearchcompany.com/report/airborne-target-acquisition-systems-global-market-report)
