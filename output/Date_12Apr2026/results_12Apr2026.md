@@ -1,0 +1,8 @@
+- [OpenAI Cirrus Labs $450M Acquisition Bolsters AI Security](https://www.thjournal.com/articles/openai-cirrus-labs-450m-acquisition-bolsters-ai-security)
+- [Constellation CEO on the $170M Acquisition, Going Public, and Why Blockchain Will Run AI Governance](https://fastcrypto.trade/constellation-ceo-on-the-170m-acquisition-going-public-and-why-blockchain-will-run-ai-governance/)
+- [Albertsons cuts jobs after failed mega merger, says AI aiding operations](https://hr.economictimes.indiatimes.com/news/industry/albertsons-cuts-jobs-after-failed-mega-merger-says-ai-aiding-operations/130192731)
+- [...U.S. Army Accelerates Air Defense Acquisition in FY2027 to Counter Hypersonic and Drone Swarm...](https://worlddefencenews.blogspot.com/2026/04/us-army-accelerates-air-defense.html)
+- [10 Expert Tactics for a Winning Talent Acquisition Strategy in 2026](https://ferdja.com/10-expert-tactics-for-a-winning-talent-acquisition-strategy-in-2026/)
+- [Irenic Acquisition Corp.](https://www.iposcoop.com/ipo/irenec-acquisition/)
+- [Albertsons Layoffs: Albertsons Job Cuts and AI Innovations After Failed Kroger Merger, ETBrandEquity](https://brandequity.economictimes.indiatimes.com/news/business-of-brands/albertsons-cuts-jobs-after-failed-mega-merger-says-ai-aiding-operations/130185721)
+- [...Stakes of Pakistans J-35 Stealth Acquisition](https://www.indiandefensenews.in/2026/04/beijings-invisible-pivot-strategic-and.html)
