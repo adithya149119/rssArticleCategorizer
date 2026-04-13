@@ -1,0 +1,5 @@
+- [Talent Acquisition Partner, Space Systems (Contract)](https://www.theladders.com/job/talent-acquisition-partner-space-systems-contract-pl-dot-net-labs-san-francisco-ca_86309537)
+- [BiomX: Acquisition Of Zorronet Expands Into AI-Driven Defense And Security Command Systems](https://pulse2.com/biomx-acquisition-of-zorronet-expands-into-ai-driven-defense-and-security-command-systems/)
+- [Triton Partners To Acquire Integris Composites To Expand Industrial Tech And Defense Capabilities](https://pulse2.com/triton-partners-to-acquire-integris-composites-to-expand-industrial-tech-and-defense-capabilities/)
+- [What Oddity Tech (ODD)'s Customer Acquisition Cost Lawsuit Means For Shareholders](https://finance.yahoo.com/markets/stocks/articles/oddity-tech-odd-customer-acquisition-011547165.html)
+- [Pakistan Acquisition of KJ-500 AEW&C, A Game Changer in Regional Air Superiority](https://timesofislamabad.com/12-04-2026/pakistan-acquisition-of-kj-500-aewc-a-game-changer-in-regional-air-superiority/)
