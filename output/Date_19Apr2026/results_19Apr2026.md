@@ -1,0 +1,7 @@
+- [Turkey Accuses Israel of Using Security Concerns to Justify Land Acquisition](https://www.leaders-mena.com/turkey-accuses-israel-of-using-security-concerns-to-justify-land-acquisition/)
+- [Federal Judge Blocks Nexstar Tegna Merger: Trump Urged Approval To 'knock Out The Fake News,' But A...](https://livenewschat.eu/nexstar-tegna-merger-blocked-antitrust-local-tv-news-2026/)
+- [...Consolidation The Nexstar Tegna Merger Injunction and the Economics of Broadcast...](https://telefonorojo.mx/structural-impediments-consolidation-nexstar-tegna-merger-injunction)
+- [...Halts Nexstar-Tegna TV Station Merger Why the $6.2B Deal Is on Ice and What It Means for Your Local...](https://moonlightop2021.blogspot.com/2026/04/judge-halts-nexstar-tegna-tv-station.html)
+- [Amazon's Globalstar Acquisition Changes More Than Satellite Internet](https://investorplace.com/hypergrowthinvesting/2026/04/amazons-globalstar-acquisition-changes-more-than-satellite-internet/)
+- [tendernews acquisition of civil defense material technical means and equipment tender...](https://global.tendernews.com/tender-info.aspx?r=2796016260418&s=0)
+- [TransDigm Group Incorporated (TDG) Solid Sales Growth Supports Acquisition Push and Buyback Push](https://www.insidermonkey.com/blog/transdigm-group-incorporated-tdg-solid-sales-growth-supports-acquisition-push-and-buyback-push-1740703/)
