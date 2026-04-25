@@ -1,0 +1,4 @@
+- [Cohere Announces Merger with German AI Firm Aleph Alpha to Create Global Enterprise...](https://www.archyde.com/title-cohere-announces-merger-with-german-ai-firm-aleph-alpha-to-create-global-enterprise-ai-powerhouse/)
+- [China Curbs US Investment In Tech Companies After Meta Acquisition Of Manus](https://talkmarkets.com/article/china-curbs-us-investment-in-tech-companies-after-meta-acquisition-of-manus-1777081603)
+- [Ondas Inc. files prospectus for resale of shares issued in World View acquisition](https://ca.investing.com/news/sec-filings/ondas-inc-files-prospectus-for-resale-of-shares-issued-in-world-view-acquisition-93CH-4587453)
+- [Eagles Enhance Defense with Strategic Jonathan Greenard Acquisition](https://usglobalnews.wordpress.com/2026/04/24/eagles-enhance-defense-with-strategic-jonathan-greenard-acquisition/)
