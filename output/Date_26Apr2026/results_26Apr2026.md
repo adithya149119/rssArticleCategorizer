@@ -1,0 +1,6 @@
+- [AAR wraps acquisition of Aircraft Reconfig Technologies](https://asianaviation.com/aar-wraps-acquisition-of-aircraft-reconfig-technologies/)
+- [Quantropi to Go Public Through Strategic Mandeville Merger](https://www.archyworldys.com/quantropi-to-go-public-through-strategic-mandeville-merger/)
+- [Cohere Aleph Alpha Merger: A Bold Sovereign AI Alliance Challenges US Dominance](https://bitcoinworld.co.in/cohere-aleph-alpha-sovereign-ai-merger/)
+- [...Inc. (OTC: AMFN) Kepler Reverse Merger Skyrocketing as Company Positions itself to Solve Massive...](https://smallcapdaily.com/2026/04/25/american-fusion-inc-otc-amfn-kepler-reverse-merger-skyrocketing-as-company-positions-itself-to-solve-massive-energy-demands-with-ai-driven-data-centers/)
+- [Coheres Merger with Aleph Alpha: Reasons Explained](https://allyoucantech.com/coheres-merger-with-aleph-alpha-reasons-explained/)
+- [...Alex Highsmith A Better Trade Acquisition?](https://www.si.com/nfl/eagles/onsi/eagles-strike-big-acquire-centerpiece-to-pass-rush-in-jonathan-greenard-01kq1b5zy4p7)
