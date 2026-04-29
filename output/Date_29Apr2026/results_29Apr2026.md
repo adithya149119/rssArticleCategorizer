@@ -1,0 +1,6 @@
+- [Collective Acquisition Corp. II Announces the Pricing of $220,000,000 Initial Public Offering](https://finance.yahoo.com/markets/stocks/articles/collective-acquisition-corp-ii-announces-000000164.html)
+- [Collective Acquisition Corp. II Announces the Pricing of $220,000,000 Initial...](https://smb.kenbridgevictoriadispatch.com/article/Collective-Acquisition-Corp-II-Announces-the-Pricing-of-dollar220000000-Initial-Public-Offering?storyId=69f14ada25e04a842cd6a70d)
+- [South Korea Extends Antitrust Restrictions on Hanwha from DSME Acquisition](https://www.europesays.com/2952519/)
+- [Margarita Howard and HX5 on What Faster DoD Acquisition Means for Contractors](https://easyreadernews.com/margarita-howard-and-hx5-on-what-faster-dod-acquisition-means-for-contractors/)
+- [Supervisory Acquisition Program Management Specialist (Materiel Leader)](https://www.afnwc.af.mil/About-Us/Jobs/Article/4472372/supervisory-acquisition-program-management-specialist-materiel-leader/)
+- [M2i Global Stockholder Approval of Merger with NYSE American: SOAR](https://www.globalproductsreporter.com/article/908733690-m2i-global-stockholder-approval-of-merger-with-nyse-american-soar)
