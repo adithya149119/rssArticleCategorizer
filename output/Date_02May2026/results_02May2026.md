@@ -1,0 +1,7 @@
+- [Defections or merger?](https://qoshe.com/dawn/ahmed-bilal-mehboob/defections-or-merger-/188432648)
+- [Department of War Overhauls Acquisition to Speed New Technology to Troops The Enablers are Here](https://soldiersystems.net/2026/05/02/department-of-war-overhauls-acquisition-to-speed-new-technology-to-troops-the-enablers-are-here/)
+- [Irenic Acquisition Corp. Announces Exercise of Over-Allotment Opt](https://natlawreview.com/press-releases/irenic-acquisition-corp-announces-exercise-over-allotment-option)
+- [Farmer Brothers Stockholders Vote to Approve Proposed Acquisition by Royal Cup](https://coasttocoasttribune.com/article/909739228-farmer-brothers-stockholders-vote-to-approve-proposed-acquisition-by-royal-cup)
+- [RRE Ventures Acquisition Corp. Announces Closing of $250 Million Initial Public Offering](https://mtrustcompany.marketminute.com/article/bizwire-2026-5-1-rre-ventures-acquisition-corp-announces-closing-of-250-million-initial-public-offering)
+- [General Catalyst Global Resilience Merger Corp. Announces Closing of $402.5 Million Initial Public...](https://uniondemocrat.marketminute.com/article/gnwcq-2026-5-1-general-catalyst-global-resilience-merger-corp-announces-closing-of-4025-million-initial-public-offering)
+- [RRE Ventures Acquisition closes $250 million initial public offering](https://ca.investing.com/news/stock-market-news/rre-ventures-acquisition-closes-250-million-initial-public-offering-432SI-4604602)
