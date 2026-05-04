@@ -1,0 +1,7 @@
+- [Ecowaste Solutions Completes Gulf Coast Corridor with Adams Sanitation Acquisition](https://wasteadvantagemag.com/ecowaste-solutions-completes-gulf-coast-corridor-with-adams-sanitation-acquisition/)
+- [Israel to acquire two squadrons of F-35, F-15IA aircraft; Netanyahu directs 350...](https://manufacturing.economictimes.indiatimes.com/news/aerospace-defence/israel-to-acquire-two-squadrons-of-f-35-f-15ia-aircraft-netanyahu-directs-350-billion-shekels-investment-in-defence-manufacturing-budget/130743565)
+- [ICYMI: Kentucky Regulators Approve American Water, Essential Utilities Merger](https://www.mychesco.com/a/news/regional/icymi-kentucky-regulators-approve-american-water-essential-utilities-merger/)
+- [...Is The Science of Rapid Skill Acquisition: How Strategic Pressure Accelerates Learning A Better...](https://abettermandotblog.wordpress.com/2026/05/04/what-is-the-science-of-rapid-skill-acquisition-how-strategic-pressure-accelerates-learning/)
+- [Tech Roundup: Ask.com Shutdown, Meta's Manus Acquisition Blocked & More](https://therarefied.blogspot.com/2026/05/tech-roundup-askcom-shutdown-metas.html)
+- [...the Under Secretary of War for Acquisition & Sustainment [Image 3 of...](https://www.dvidshub.net/image/9658649/naval-weapons-station-yorktown-hosts-under-secretary-war-acquisition-sustainment)
+- [The Navys New Acting Secretary Just Threw Out the Old Acquisition Playbook](https://www.19fortyfive.com/2026/05/the-navys-new-acting-secretary-just-threw-out-the-old-acquisition-playbook/)
