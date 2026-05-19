@@ -1,0 +1,6 @@
+- [A Utility Mega-Merger Is All About Data Centers](https://www.europesays.com/3000986/)
+- [Iron Dome Acquisition I Corp. Announces Closing of $150 Million Initial Public Offering](https://www.financialcontent.com/article/gnwcq-2026-5-18-iron-dome-acquisition-i-corp-announces-closing-of-150-million-initial-public-offering)
+- [NorthStrive Companies Inc. Co-Advises on Acquisition of A&B Aerospace, Inc.](https://www.financialcontent.com/article/gnwcq-2026-5-18-northstrive-companies-inc-co-advises-on-acquisition-of-a-and-b-aerospace-inc)
+- [...Americas push for speed in defense acquisition could still field systems that cant survive the...](https://federalnewsnetwork.com/commentary/2026/05/the-unfinished-weapon-why-americas-push-for-speed-in-defense-acquisition-could-still-field-systems-that-cant-survive-the-fight/)
+- [Iron Dome Acquisition I Corp. Announces Closing of $150 Million Initial Public...](https://smb.lobservateur.com/article/Iron-Dome-Acquisition-I-Corp-Announces-Closing-of-dollar150-Million-Initial-Public-Offering?storyId=6a0b8102d6b3ec3c381afd26)
+- [GB Capital Ltd. Co-Advises on the Acquisition of A&B Aerospace Inc.](https://www.globenewswire.com/news-release/2026/05/18/3296679/0/en/GB-Capital-Ltd-Co-Advises-on-the-Acquisition-of-A-B-Aerospace-Inc.html)
