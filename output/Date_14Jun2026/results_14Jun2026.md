@@ -1,0 +1,6 @@
+- [After F-16 Arrival, Acquisition of Iconic Combat Helicopters Accelerates](https://www.newsy-today.com/after-f-16-arrival-acquisition-of-iconic-combat-helicopters-accelerates/)
+- [Doj Approves Paramount-warner Bros. Merger](https://www.theamericanconservative.com/doj-approves-paramount-warner-bros-merger/)
+- [Ravens' big fish acquisition suddenly has everything to prove in 2026](https://ebonybird.com/baltimore-ravens-big-fish-acquisition-trey-hendrickson-suddenly-has-everything-to-prove-in-2026)
+- [Senior Program Manager (Acquisition) in Saint Louis](https://www.energyjobline.com/job/senior-program-manager-acquisition-saint-louis-30326449)
+- [Subject: Strategic IP Acquisition / Breakthrough Propulsion and Zero-Wear Braking System for...](https://medium.com/@avshalomedensharphi/subject-strategic-ip-acquisition-breakthrough-propulsion-and-zero-wear-braking-system-for-9b803d640a43)
+- [The Tech-Retail Evolution in Japan: How the Yamada-Edion Merger Redefines Private Brands and Retail...](https://medium.com/@ad.kdworks/the-tech-retail-evolution-in-japan-how-the-yamada-edion-merger-redefines-private-brands-and-retail-9a464442b126)
