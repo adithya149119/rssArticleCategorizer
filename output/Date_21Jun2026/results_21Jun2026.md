@@ -1,0 +1,7 @@
+- [Defense spending policy bill proposes $1.9B for Guam, drops land acquisition](https://www.pacificislandtimes.com/post/defense-spending-policy-bill-proposes-1-9b-for-guam-drops-land-acquisition)
+- [Skip Dynamix Acquisition Asserts Draganfly Inc. (DPRO) as a High Growth Micro-Cap Stock to Buy Now](https://finance.yahoo.com/markets/stocks/articles/skip-dynamix-acquisition-asserts-draganfly-181654980.html)
+- [Astrobotic Acquisition by Voyager Set to Drive Scaling Efforts](https://www.newsy-today.com/astrobotic-acquisition-by-voyager-set-to-drive-scaling-efforts/)
+- [The Cursor Acquisition Tells You Exactly Which AI Stocks to Own Next](https://www.europesays.com/ai/80333/)
+- [Diehl Defence to Acquire Explosive Ordnance Disposal Firm, EST Energetics](https://defensemirror.com/news/41629/Diehl_Defence_to_Acquire_Explosive_Ordnance_Disposal_Firm__EST_Energetics)
+- [...Regulation of Plant Growth, Nutrient Acquisition, and Stress...](https://www.mdpi.com/2223-7747/15/12/1913)
+- [MDA Space to acquire Blue Canyon in $620 million deal](https://hirunews.lk/en/business/473062/mda-space-to-acquire-blue-canyon-in-620-million-deal)
