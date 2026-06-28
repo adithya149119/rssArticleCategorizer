@@ -1,0 +1,5 @@
+- [Hurricanes Acquire Rights to John Carlson](https://sports.yahoo.com/articles/hurricanes-acquire-rights-john-carlson-020001515.html)
+- [TECK.B: Anglo Merger And Copper Portfolio Moves Will Shape Balanced Risk Reward](https://simplywall.st/community/narratives/ca/materials/tsx-teck.b/teck-resources-shares/b347kqbn-teckb-merger-activity-and-copper-prices-will-shape-future-risk-and-reward/updates/22-the-analyst-price-target-for-teck-resources-has-been-revised)
+- [Morocco Reviews Submarine Acquisition Offers from France, Germany, and South Korea](https://en.mcg24.com/morocco-reviews-submarine-acquisition-offers-from-france-germany-and-south-korea/)
+- [Blues Acquire Brandon Carlo from Leafs in 2026 NHL Draft Deal](https://bvmsports.com/2026/06/27/blues-acquire-brandon-carlo-from-leafs-in-2026-nhl-draft-deal/)
+- [Allen: Moore acquisition 'huge help' to Bills](https://www.thescore.com/nfl/news/3559060/allen-moore-acquisition-huge-help-to-bills)
