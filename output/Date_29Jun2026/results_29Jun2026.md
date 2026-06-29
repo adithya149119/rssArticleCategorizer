@@ -1,0 +1,3 @@
+- [Investigation into the acquisition of real property for a Territorial defence Force base in...](https://www.poland.co.pl/investigation-into-the-acquisition-of-real-property-for-a-territorial-defence-force-base-in-nowy-sacz-dismissed-the-court-has-closed-the-case-40788495.html)
+- [...Munitions Acquisition, Industrial Capacity, And Integrated Air And Missile Defense For Japan ...](https://www.europesays.com/japan/49058/)
+- [Shettima Flags-off NASENIs Skill Acquisition Programme](https://insidebusiness.ng/243672/shettima-flags-off-nasenis-skill-acquisition-programme/)
