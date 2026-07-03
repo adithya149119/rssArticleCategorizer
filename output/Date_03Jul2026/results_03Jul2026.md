@@ -1,0 +1,8 @@
+- [U.S.-Israel Military Merger Delayed: Heres Why and How You Can Stop It](https://freepress.org/article/u-s-israel-military-merger-delayed-here-s-why-and-how-you-can-stop-it)
+- [Strategic Acquisition Window Opens For Interlocking Vehicle Protection Patent Portfolio](https://lifestyle.cfxmagazine.com/story/752693/strategic-acquisition-window-opens-for-interlocking-vehicle-protection-patent-portfolio/)
+- [Strategic Acquisition Window Opens For Interlocking Vehicle Protection Patent...](https://smb.ourdavie.com/article/Strategic-Acquisition-Window-Opens-For-Interlocking-Vehicle-Protection-Patent-Portfolio/6a47102b3c2636000256537b)
+- [Freight Industry Briefing: Ceva Logistics Eyes Iberian Expansion With Paack Acquisition](https://www.mgn.com/news/ceva-logistics-paack-acquisition-iberian-expansion-freight-briefing)
+- [Strategic Acquisition Window Opens For Interlocking Vehicle Protection Patent Portfolio The Dam FM](https://lifestyle.thedam.fm/story/309758/strategic-acquisition-window-opens-for-interlocking-vehicle-protection-patent-portfolio/)
+- [Talent Acquisition Partner Iii (staff Augmentation) - Sierra Space](https://builtin.com/job/talent-acquisition-partner-iii-staff-augmentation/9076722)
+- [Lockheed Martin Emerges as Frontrunner to Acquire Ultra Maritime in $3.5 Billion Defense Deal](https://www.econotimes.com/Lockheed-Martin-Emerges-as-Frontrunner-to-Acquire-Ultra-Maritime-in-35-Billion-Defense-Deal-1745824)
+- [Kraken Robotics Announces Closing of Covelya Group Acquisition](http://www.infomarine.net/en/technology/98-offshore-engineer/80640-kraken-robotics-announces-closing-of-covelya-group-acquisition.html)
