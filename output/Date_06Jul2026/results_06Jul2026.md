@@ -1,0 +1,8 @@
+- [...ex GROUPE GORGE) : Thales to acquire the Gorge family's stake in Exail, with a view to launching a...](https://appeal-democrat.marketminute.com/article/actus-2026-7-6-exail-technologies-ex-groupe-gorge-thales-to-acquire-the-gorg-familys-stake-in-exail-with-a-view-to-launching-a-tender-offer-for-100-of-the-company)
+- [com - EXAIL TECHNOLOGIES (ex GROUPE GORGE) : Thales to acquire the Gorge family's stake in Exail...](http://business.woonsocketcall.com/woonsocketcall/article/actus-2026-7-6-exail-technologies-ex-groupe-gorge-thales-to-acquire-the-gorg-familys-stake-in-exail-with-a-view-to-launching-a-tender-offer-for-100-of-the-company)
+- [Thales to acquire the Gorge family's stake in Exail, with a view to launching a...](https://live.euronext.com/en/products/equities/company-news/2026-07-06-thales-acquire-gorge-familys-stake-exail-view-launching)
+- [Dont turn NYSC to another skills acquisition programme, group warns](https://www.enews.com.ng/2026/07/dont-turn-nysc-to-another-skills-acquisition-programme-group-warns/)
+- [...SpaceX Goes Public, and the AI Merger That Could Change...](https://universalfeedsrd.blogspot.com/2026/07/biggest-business-deals-mergers-2026-ai-spacex-ipo.html)
+- [Indias Latest Defence Acquisition Plan](https://tughralyamin.wordpress.com/2026/07/05/indias-latest-defence-acquisition-plan/)
+- [Portugal Signs Deal to Acquire U.S. UH-60 Black Hawk Helicopters to Expand Armed Forces Operations](https://www.armyrecognition.com/news/army-news/2026/portugal-signs-deal-to-acquire-u-s-uh-60-black-hawk-helicopters-to-expand-armed-forces-operations)
+- [Israeli UAV Company Draws $40 Million Valuation in Acquisition](https://i-hls.com/archives/137608)
