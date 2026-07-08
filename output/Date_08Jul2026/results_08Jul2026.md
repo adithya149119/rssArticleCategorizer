@@ -1,0 +1,5 @@
+- [JPMorgan Sees Tesla-SpaceX Merger Logic](http://feed.ilidea.com/index.php/Index/details.html?id=16241273)
+- [...Overnight: Jpmorgan Says Tesla-spacex Merger Looks coherent On Paper But China Approval Risks...](https://newsable.asianetnews.com/markets/tsla-stock-rises-overnight-jpmorgan-says-tesla-spacex-merger-looks-coherent-on-paper-but-china-approval-risks-loom-articleshow-6gz5ruo)
+- [Ondas Expands Autonomous Systems Portfolio With DZYNE Technologies Acquisition](https://thedefensepost.com/2026/07/07/ondas-acquires-dzyne-technologies/)
+- [...Infrastructure Monitoring Platform with Acquisition of Vecima Networks Industrial IoT...](https://www.journalofbusinessnews.com/article/925071459-lantronix-adds-high-margin-arr-and-expands-critical-infrastructure-monitoring-platform-with-acquisition-of-vecima-networks-industrial-iot-business)
+- [U.K. official pitching Canada on defence bank merger instead of separate groups](https://news.bdtype.com/u-k-official-pitching-canada-on-defence-bank-merger-instead-of-separate-groups-379462.html)
