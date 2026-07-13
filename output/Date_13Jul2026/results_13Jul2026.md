@@ -1,0 +1,7 @@
+- [...Defence Technology with Micropack Acquisition...](https://telecom.economictimes.indiatimes.com/news/devices/carlyle-consortium-makes-historic-investment-in-indian-defence-technology-with-micropack-acquisition/132354599)
+- [...Threat Over Warner Bros. Discovery Merger...](https://hungryphotographer.org/article/paramount-considering-relocation-amid-california-lawsuit-threat-over-warner-bros-discovery-merger)
+- [07.13 Global Defense Briefing : K-Defense Exports, Ukraine Robotics, Hanwha-KAI Merger](https://k-defense-archive.blogspot.com/2026/07/0713-global-defense-briefing-k-defense.html)
+- [Emergency phonebank to stop Deadly US-Israel Military Merger](https://www.indybay.org/newsitems/2026/07/12/18887353.php)
+- [Tesla merger with SpaceX won't save investors, top analyst says](https://finance.yahoo.com/markets/stocks/articles/tesla-merger-spacex-wont-save-163300360.html)
+- [Israel Merger and Anti-Semitic Legislation Confront Democratic Socialists](https://www.quebecnouvelles.com/israel-merger-and-anti-semitic-legislation-confront-democratic-socialists-1392240.html)
+- [R3NK: Defence Acquisition And 2026 Revenue Outlook Will Support Bullish Thesis](https://simplywall.st/community/narratives/de/capital-goods/etr-r3nk/renk-group-shares/l439nybn-rising-regulatory-pressures-will-jeopardize-order-book-despite-niche-advances/updates/6-analysts-have-trimmed-their-price-target-for-renk-group-to-a)
