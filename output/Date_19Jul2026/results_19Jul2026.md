@@ -1,0 +1,8 @@
+- [DHQ Trains Veterans in Skills Acquisition to Boost Self-Reliance, Economic Empowerment](https://sahelreportersnews.blogspot.com/2026/07/dhq-trains-veterans-in-skills.html)
+- [What $8 billion Iridium Acquisition Means For Rocket Lab](https://www.lorenzo2cents.com/p/rklb-irdm)
+- [Speaker Recognizes Shiv Sena Shinde Merger And TMC Rebels In Lok Sabha](https://www.zoomnews.in/en/news-detail/speaker-recognizes-shiv-sena-shinde-merger-and-tmc-rebels-in-lok-sabha.html)
+- [Trump Administration Promises Overhaul of Defense Acquisition for Startups](https://www.theworldopinion.com/world/trump-administration-promises-overhaul-defense-acquisition-startups)
+- [Aura Finalizes Qoria Acquisition, Launches ASX Trading as a Global Online Safety Powerhouse](https://kalkinemedia.com/au/news/announcements/aura-finalizes-qoria-acquisition-launches-asx-trading-as-a-global-online-safety-powerhouse)
+- [Nightwings Chris Jones on Why Acquisition Makes or Breaks Tech Innovation](https://www.executivebiz.com/articles/military-acquisition-cyber-supply-chain-uxs-chris-jones-nightwing)
+- [Director of Paid Acquisition](https://remotejobs.org/remote-jobs/director-of-paid-acquisition-lakeshore-learning-materials-llc)
+- [Quantum Cybers Facility Acquisition: A Leap into Autonomous Defense Manufacturing](https://asiaexcite.com/business/quantum-cybers-facility-acquisition-a-leap-into-autonomous-defense-manufacturing/)
