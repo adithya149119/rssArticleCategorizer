@@ -1,0 +1,2 @@
+- [...Global Defense, Satellite And Ai Infrastructure Opportunity With Proposed Acquisition Of Airbeam...](https://www.quantisnow.com/insight/eva-live-targets-a-3-trillion-global-defense-satellite-and-6641673)
+- [Major acquisition for the Bills to bolster their defense](https://dose.ca/2026/07/19/major-acquisition-for-the-bills-to-bolster-their-defense/)
