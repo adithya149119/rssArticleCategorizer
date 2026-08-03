@@ -1,0 +1,7 @@
+- [Eric Trump-backed Space-Eyes to go public via $638M SPAC merger](https://www.europesays.com/people/175907/)
+- [Ivan Sascha Sheehan: Virginia should not rush the NextEra-Dominion merger](https://augustafreepress.com/news/ivan-sascha-sheehan-virginia-should-not-rush-the-nextera-dominion-merger/)
+- [A Defense Electronics Business With Acquisition Potential and an Undervalued...](https://beforeitsnews.com/financial-markets/2026/08/a-defense-electronics-business-with-acquisition-potential-and-an-undervalued-manufacturer-with-asset-backed-upside-geowire-weekly-no-250-5424207.html)
+- [California's Anti-Merger Power Play Could Send $30 Billion Running Out Of State](https://www.blabber.buzz/conservative-news/1077585-california-s-anti-merger-power-play-could-send-30-billion-running-out-of-state)
+- [IonQ Completes Acquisition Of SkyWater Technology To Create Vertically Integrated Quantum Platform](https://pulse2.com/ionq-completes-acquisition-of-skywater-technology-to-create-vertically-integrated-quantum-platform/)
+- [Musk Weighs Separating Teslas China Business Amid Possible SpaceX Merger](https://www.radioseoul1650.com/archives/149866)
+- [Tesla-SpaceX Merger May Encounter Regulatory Challenges Due to China Operations](https://theunn.com/teslaspacex-merger-may-encounter-regulatory-challenges-due-to-china-operations/)
