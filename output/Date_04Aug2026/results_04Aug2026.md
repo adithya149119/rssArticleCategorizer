@@ -1,0 +1,4 @@
+- [Rocket Labs $8 Billion Iridium Acquisition Creates a Powerful, Profitable Space Stock in 2027](https://finance.yahoo.com/markets/stocks/articles/rocket-lab-8-billion-iridium-165126898.html)
+- [Acquisition of ClanTect Limited](https://shareprices.com/rns/acquisition-of-clantect-limited-8pngjqn5imv2mxg/)
+- [Senior Product Designer, Provider Acquisition](https://www.builtinseattle.com/job/senior-product-designer-provider-acquisition/10515417)
+- [Air Industries Group Announces Amendment, Extending the Amended and Restated Merger Agreement with Tenax Aerospace](http://www.businesswire.com/news/home/20260803876346/en/Air%C2%A0Industries%C2%A0Group-Announces-Amendment-Extending-the-Amended-and-Restated-Merger-Agreement-with-Tenax-Aerospace/?feedref=JjAwJuNHiystnCoBq_hl-Rc4vIAVcHHkbDcwJimU8QtrtlakeQ9hNboBqTAWIjTge3KWq9s9jif-UkBjBsFRyYAbRTSLTc1mgvhPlnaBA55M-oupQnbXnhKsYk8RmHF_kAy2gZikaX3QWV6xOvgFlA==)
