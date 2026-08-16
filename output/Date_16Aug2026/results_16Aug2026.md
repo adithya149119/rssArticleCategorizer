@@ -1,0 +1,7 @@
+- [...Business Combination with Plum Acquisition Corp. III and Prepares for Nasdaq Listing NEWSnet...](https://waco.newsnetmedia.com/story/386256/tactical-resources-completes-business-combination-with-plum-acquisition-corp-iii-and-prepares-for-nasdaq-listing/)
+- [Australia to Acquire Three US Nuclear Submarines Under AUKUS Deal](https://www.archyde.com/australia-to-acquire-three-us-nuclear-submarines-under-aukus-deal/)
+- [THEON Enters into Exclusivity Agreement for the Acquisition of HGH Systemes Infrarouges](https://www.aviationupdatemag.in/theon-enters-into-exclusivity-agreement-for-the-acquisition-of-hgh-systemes-infrarouges/)
+- [U.S. Commerce Secretary Urges Apple to Reevaluate Acquisition of Chinese Memory Parts](https://lonelybrand.com/blog/u-s-commerce-secretary-urges-apple-to-reevaluate-acquisition-of-chinese-memory-parts/)
+- [Paramount-Warner Bros. Mega-Merger Wins Mexico Approval as U.S. State Lawsuits Stand as Final Wall](https://24x7-breakingnews.blogspot.com/2026/08/paramount-warner-bros-mega-merger-wins.html)
+- [University of South Carolina: Associate Manager of SAAS Talent Acquisition](https://careers.insidehighered.com/job/3540765/associate-manager-of-saas-talent-acquisition/)
+- [Ministry of Defense Plans $12B Medium Transport Aircraft Acquisition](https://www.newsy-today.com/ministry-of-defense-plans-12b-medium-transport-aircraft-acquisition/)
