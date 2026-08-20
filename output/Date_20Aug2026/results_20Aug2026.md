@@ -1,0 +1,8 @@
+- [Inside the $8 billion cybersecurity acquisition helping ServiceNow buck the Saaspocalypse fears](https://thefifthskill.com/inside-the-8-billion-cybersecurity-acquisition-helping-servicenow-buck-the-saaspocalypse-fears/)
+- [...Completes Previously Announced Acquisition of Cyberhawk, a Leader in AI-Powered Critical...](https://lifestyle.kotaradio.com/story/377194/ondas-completes-previously-announced-acquisition-of-cyberhawk-a-leader-in-ai-powered-critical-infrastructure-intelligence/)
+- [How Peyton Watsons Acquisition Will Improve the Cavaliers for Years To Come](https://www.yardbarker.com/nba/articles/how_peyton_watsons_acquisition_will_improve_the_cavaliers_for_years_to_come/s1_17132_44195875)
+- [The perfect proposal paradox and Garcias law in AI-enabled acquisition](https://federalnewsnetwork.com/commentary/2026/08/the-perfect-proposal-paradox-and-garcias-law-in-ai-enabled-acquisition/)
+- [NEOTech, an Arkview Capital Portfolio Company, Completes Acquisition of Virtex](https://lifestyle.kotaradio.com/story/374510/neotech-an-arkview-capital-portfolio-company-completes-acquisition-of-virtex/)
+- [Karman Line Acquisition Corp. Announces Closing of $200 Million Initial Public Offering](https://lifestyle.kynt1450.com/story/389690/karman-line-acquisition-corp-announces-closing-of-200-million-initial-public-offering/)
+- [NorthStrive Acquisition Corp I. Announces Closing of $100,000,000 Initial Public Offering](https://lifestyle.brightsfuture.com/story/828908/northstrive-acquisition-corp-i-announces-closing-of-100000000-initial-public-offering/)
+- [Karman Line Acquisition closes $200M IPO on Nasdaq](https://www.streetinsider.com/Equity+Offerings/Karman+Line+Acquisition+closes+$200M+IPO+on+Nasdaq/26949909.html)
