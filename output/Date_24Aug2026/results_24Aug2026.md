@@ -1,0 +1,3 @@
+- [Mark Ruffalo Denies Antisemitism Claims Over Paramount Merger](https://arynews.tv/mark-ruffalo-paramount-merger-controversy-actor-denies-antisemitism-claims)
+- [Mark Ruffalo Slams Paramount Over $111B Merger Accusations | Antisemitic Tropes Debate (2026)](https://grkontrol.org/article/mark-ruffalo-slams-paramount-over-111b-merger-accusations-antisemitic-tropes-debate)
+- [Mark Ruffalo Denies Paramounts Antisemitism Accusations Over Merger Criticism](https://www.archyde.com/mark-ruffalo-denies-paramounts-antisemitism-accusations-over-merger-criticism/)
