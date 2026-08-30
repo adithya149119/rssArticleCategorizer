@@ -1,0 +1,6 @@
+- [Field Talent Acquisition Partner](https://remotejobs.org/remote-jobs/field-talent-acquisition-partner-shake-shack)
+- [Wednesday 9/2: Stop the Deadly Merger Phonebank](https://www.indybay.org/newsitems/2026/08/29/18888301.php)
+- [Ben-gvir Rejects Netanyahu Coalition Merger Pressure](https://www.jfeed.com/news-israel/ben-gvir-netanyahu-coalition-merger-talks)
+- [Devin Carter's Impact on the Atlanta Hawks: What to Expect from the New Acquisition (2026)](https://fivefrank.com/article/devin-carter-s-impact-on-the-atlanta-hawks-what-to-expect-from-the-new-acquisition)
+- [Zendesk hiring Senior Talent Acquisition Partner - Sales Job in Singapore](https://www.glassdoor.sg/job-listing/senior-talent-acquisition-partner-sales-zendesk-JV_IC3235921_KO0,39_KE40,47.htm?jl=1010153187616)
+- [NSTracker: 3-Axis Antenna Control Software for Stable Satellite Data Acquisition](https://www.mdpi.com/1424-8220/26/17/5477)
