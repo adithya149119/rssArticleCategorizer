@@ -1,0 +1,7 @@
+- [INTURAI VENTURES COMPLETES DOMECOMMAND ACQUISITION](https://pr.bonitaesteromagazine.com/article/INTURAI-VENTURES-COMPLETES-DOMECOMMAND-ACQUISITION/6a9678ca5b3d9368bc023fa8)
+- [Inturai Ventures Finalizes Acquisition of AI Technology for Drone Command Systems](https://third-news.com/article/a0a934b4-a5d4-11f1-9ecb-9ca3ba08e13f)
+- [Spin.AI Announces Acquisition of DoControl to Deliver Comprehensive SaaS and AI Security](https://lifestyle.brickvest.com/story/781292/spin-ai-announces-acquisition-of-docontrol-to-deliver-comprehensive-saas-and-ai-security/)
+- [Rapid Acquisition Offset Sight Reviews, Benefits, and Drawbacks ~What...](https://hst-assets-s3.s3.eu-north-1.amazonaws.com/reviews/rapidacquisitionoffsetsight/video/rapid-acquisition-offset-sight-reviews-benefits-and-drawbacks-yvs9ph.html)
+- [...pushed to establish separate acquisition procedures for cutting-edge AI and drone...](https://en.asiatoday.co.kr/view.php?key=20260901000911545)
+- [NorthStrive Acquisition Corp I. Announces the Separate Trading of its Class A...](https://lifestyle.goodsciencing.com/story/821883/northstrive-acquisition-corp-i-announces-the-separate-trading-of-its-class-a-ordinary-shares-rights-and-warrants-commencing-september-2-2026/)
+- [Public Divided Over South Koreas Military Academy Merger Plans](https://digitalchew.com/2026/08/military-public-divided-over-south-koreas/)
