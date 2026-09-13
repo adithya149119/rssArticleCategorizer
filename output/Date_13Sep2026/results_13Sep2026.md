@@ -1,0 +1,4 @@
+- [GE Aerospace (GE)s $12 Billion CPP Acquisition Puts Its Growth Strategy to the Test](https://finance.yahoo.com/markets/stocks/articles/ge-aerospace-ge-12-billion-223833187.html)
+- [Applied Ai Engineer - Pcc Talent Acquisition Portal](https://pcctalentacquisitionportal.tal.net/vx/lang-en-GB/mobile-0/appcentre-1/brand-7/xf-4529f9c669c1/candidate/so/pm/1/pl/3/opp/23975-Applied-AI-Engineer/en-GB)
+- [Cost Accountant - Pcc Talent Acquisition Portal](https://pcctalentacquisitionportal.tal.net/vx/lang-en-GB/mobile-0/appcentre-1/brand-7/xf-4529f9c669c1/candidate/so/pm/1/pl/3/opp/23611-Cost-Accountant/en-GB)
+- [Palo Alto Networks beats quarterly estimates on AI demand, continues acquisition spree](https://rocketnews.com/2026/09/palo-alto-networks-beats-quarterly-estimates-on-ai-demand-continues-acquisition-spree-4/)
