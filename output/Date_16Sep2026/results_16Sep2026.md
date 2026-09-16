@@ -1,0 +1,8 @@
+- [South Korea approves $2.4 billion acquisition of additional US Seahawk helicopters](https://www.englandnewsportal.com/news/south-korea-approves-24-billion-acquisition-of-additional-us-seahawk-helicopters202609160924510001/)
+- [Space Force Acquisition Overhaul: Hernandez-Baquero's Plan for Faster Satellites & Weapons (2026)](https://homelesschild.org/article/space-force-acquisition-overhaul-hernandez-baquero-s-plan-for-faster-satellites-weapons)
+- [Hernandez-Baquero lays out plan to make Space Force acquisition overhaul work](https://www.europesays.com/us/1066061/)
+- [Branded Legacy, Inc. (OTC: BLEG) Finalizes Acquisition of Autonomous Defense Company](https://pressvn.com/jcn-newswire/branded-legacy-inc-otc-bleg-finalizes-acquisition-of-autonomous-defense-company/)
+- [...Closes 29th Drone as a Service Acquisition, Adding Solar and Railroad Customers and 17-State...](https://biofuels.einnews.com/pr_news/942536427/zenatech-closes-29th-drone-as-a-service-acquisition-adding-solar-and-railroad-customers-and-17-state-coverage)
+- [Rocket Lab Fully Funds Iridium Acquisition, Including Completion of $1.94 Billion ATM](https://investors.rocketlabcorp.com/news-releases/news-release-details/rocket-lab-fully-funds-iridium-acquisition-including-completion)
+- [OTC: BLEG) Finalizes Acquisition of Autonomous Defense Company Indonesia News...](https://idnewszone.com/jcn-newswire/branded-legacy-inc-otc-bleg-finalizes-acquisition-of-autonomous-defense-company/)
+- [OTC: BLEG) Finalizes Acquisition of Autonomous Defense Company News in the...](https://phhit.com/jcn-newswire/branded-legacy-inc-otc-bleg-finalizes-acquisition-of-autonomous-defense-company/)
