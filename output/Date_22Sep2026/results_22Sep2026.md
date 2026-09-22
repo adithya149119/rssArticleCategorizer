@@ -1,0 +1,3 @@
+- [Leaders Advantage Acquisition Corp. Announces Closing of $150,000,000 Initial Public Offering](https://crweworld.com/article/news-provided-by-globenewswire/3910678/leaders-advantage-acquisition-corp-announces-closing-of-150000000-initial-public-offering)
+- [Leader's Advantage Acquisition Corp. closes $150M IPO on Nasdaq](https://www.streetinsider.com/Equity+Offerings/Leaders+Advantage+Acquisition+Corp.+closes+$150M+IPO+on+Nasdaq/27086494.html)
+- [Leaders Advantage Acquisition Corp. Announces Closing of $150,000,000 Initial Public...](https://smb.kenbridgevictoriadispatch.com/article/Leaders-Advantage-Acquisition-Corp-Announces-Closing-of-dollar150000000-Initial-Public-Offering/6ab1ea30fb7acafcb4abd33d)
