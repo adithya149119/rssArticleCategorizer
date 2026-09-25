@@ -1,0 +1,7 @@
+- [Pentagon Investigates China's Acquisition of F-35 Stealth Fighter Parts](https://ipress.com.hk/news/pentagon-investigates-china-s-acquisition-of-f-35--1790307459)
+- [WCCP Closes XLabs Acquisition, Advances War Labs in NonLethal Defense and Security](https://indonewswire.com/jcn-newswire/wccp-closes-xlabs-acquisition-advances-war-labs-in-nonlethal-defense-and-security/)
+- [WCCP Closes XLabs Acquisition, Advances War Labs in NonLethal Defense and Security Kuala Lumpur...](https://kulpr.com/jcn-newswire/wccp-closes-xlabs-acquisition-advances-war-labs-in-nonlethal-defense-and-security/)
+- [WCCP Closes XLabs Acquisition, Advances War Labs in NonLethal Defense and Security Indonesia News...](https://idnewszone.com/jcn-newswire/wccp-closes-xlabs-acquisition-advances-war-labs-in-nonlethal-defense-and-security/)
+- [WCCP Closes XLabs Acquisition, Advances War Labs in NonLethal Defense and Security News in the...](https://phhit.com/jcn-newswire/wccp-closes-xlabs-acquisition-advances-war-labs-in-nonlethal-defense-and-security/)
+- [Iridium Stockholders Approve Acquisition by Rocket Lab](https://ca.advfn.com/stock-market/NASDAQ/RKLB/stock-news/99371865/iridium-stockholders-approve-acquisition-by-rocket)
+- [WCCP Closes XLabs Acquisition, Advances War Labs in NonLethal Defense and Security Lion City Life](https://lioncitylife.com/jcn-newswire/wccp-closes-xlabs-acquisition-advances-war-labs-in-nonlethal-defense-and-security/)
