@@ -1,0 +1,7 @@
+- [Address a few short questions to acquire paired together with your greatest BTC local casino](https://realstrikklyhiphop.com/address-a-few-short-questions-to-acquire-paired-together-with-your-greatest-btc-local-casino/)
+- [Paramount/WBD Merger: Is the Public Being Shortchanged? (2026)](https://jesuisbelleettestoi.com/article/paramount-wbd-merger-is-the-public-being-shortchanged)
+- [Japans 2027 Defensive Leap: Acquisition of GCAP 6th-Gen Fighter Jets and AI-Guided Hypersonic...](https://www.aashishglobal24.com/2026/09/blog-post_26.html)
+- [Sen. Cory Booker Urges Independent Review of Paramount-WBD Merger Settlement](https://www.archyde.com/sen-cory-booker-urges-independent-review-of-paramount-wbd-merger-settlement/)
+- [Deputy Portfolio Acquisition Executive Nuclear Air Delivered/Deputy Director](https://www.afnwc.af.mil/About-Us/Jobs/Article/4611904/deputy-portfolio-acquisition-executive-nuclear-air-delivereddeputy-director/)
+- [Senior Talent Acquisition Business Partner](https://www.builtincolorado.com/job/senior-talent-acquisition-business-partner/11378927)
+- [Canadian Acquisition of GlobalEye AEW&C Solution](https://www.joint-forces.com/defence-equipment-news/94428-canadian-acquisition-of-globaleye-aewc-solution)
