@@ -1,0 +1,7 @@
+- [Detego Globals Media Acquisition Tool Emerges as Finalist in Esteemed 2023 SC Awards](https://www.businessmole.com/detego-globals-media-acquisition-tool-emerges-as-finalist-in-esteemed-2023-sc-awards/)
+- [Platform-led growth, acquisition-supported](https://investorshangout.com/post/view?id=6846225)
+- [Tesla Looks Primed To Be Broken Up and Sold Piece by Piece in Preparation for a Merger With SpaceX](https://www.autoevolution.com/news/tesla-looks-primed-to-be-broken-up-and-sold-piece-by-piece-in-preparation-for-a-merger-with-spacex-276174.html)
+- [Talent Acquisition Specialist (Remote) at Concentric Corporation #techjobs #techcareers #ITsupport](https://blog.nationalcybersecuritytrainingacademy.com/talent-acquisition-specialist-remote-at-concentric-corporation-techjobs-techcareers-itsupport/)
+- [Huons Faces Drug Price Cut Risks After Canceled Merger](https://www.archynewsy.com/huons-faces-drug-price-cut-risks-after-canceled-merger/)
+- [Philippine Army Submits Missile Acquisition Plans To Defense Department](https://gbp.com.sg/stories/philippine-army-submits-missile-acquisition-plans-to-defense-department/)
+- [Sr. Director of Consumer Marketing & Lead Acquisition](https://www.builtincolorado.com/job/sr-director-consumer-marketing-lead-acquisition/11365919)
