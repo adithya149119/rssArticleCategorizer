@@ -1,0 +1,4 @@
+- [Intellistake's Acquisition Target NanoAi Proves Explosive Threat Detection in Under...](https://pr.holladayjournal.com/article/Intellistakes-Acquisition-Target-NanoAi-Proves-Explosive-Threat-Detection-in-Under-One-Second-at-a-10ft-Standoff-Distance/6ad07aca129730098884c4ba)
+- [EU Commission clears Leonardo acquisition of Ivecos defence unit](https://mnacritique.mergersindia.com/news/eu-commission-clears-leonardo-acquisition-of-ivecos-defence-unit/)
+- [TLA Standards Digital Learning Acquisition Guidance - read online free](https://docshare.wps.com/document/tla-standards-digital-learning-acquisition-guidance-read-online-free/581669/)
+- [Tesla and SpaceX Merger? Barclays Points to Possible Deadline](https://en.forexclub.pl/The-merger-of-Tesla-and-SpaceX-Barclays-indicates-a-possible-date--but-the-market-is-still-waiting-for-specifics/)
