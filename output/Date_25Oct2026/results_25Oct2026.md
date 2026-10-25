@@ -1,0 +1,7 @@
+- [Energy Fuels weighs VAC acquisition amid GM magnet dispute](https://www.archynewsy.com/energy-fuels-weighs-vac-acquisition-amid-gm-magnet-dispute/)
+- [Iveco Acquisition by Tata Motors Changes Europe Market](https://www.powersys.com/2026/10/iveco-acquisition-by-tata-motors-changes-europe-market/)
+- [Federal Court Rejects Bern Church Merger Appeal](https://www.archyde.com/federal-court-rejects-bern-church-merger-appeal/)
+- [Tapestry Capri Merger Blocked in Massive FTC Win](https://newsvot.com/breaking-tapestry-capri-merger-blocked-in-massive-ftc-win)
+- [Shiga Bank, Senshu Ikeda Holdings Eye Merger Adnkronos English](https://english.adnkronos.com/2026/10/24/shiga-bank-senshu-ikeda-holdings-eye-merger/)
+- [Musk Calls SpaceX-Tesla Merger a Good IdeaBut Shareholder Vote, Antitrust Review and...](https://nai500.com/blog/2026/10/musk-calls-spacex-tesla-merger-a-good-idea-but-shareholder-vote-antitrust-review-and-politics-stand-in-the-way/)
+- [AI Boom Paves the Way for the Largest Merger in History Between SpaceX and Tesla](https://www.news24.ooguy.com/2026/10/ai-boom-paves-way-for-largest-merger-in.html)
