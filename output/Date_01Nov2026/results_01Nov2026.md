@@ -1,0 +1,8 @@
+- [Denels Skyler Drone Debuts at AAD as SANDF acquisition Talks Advance](https://www.europesays.com/defence/15603/)
+- [Why Beijing could block the SpaceX-Tesla merger](https://www.europesays.com/ie/760501/)
+- [FORT Robotics Secures $20 Million Ahead of Nasdaq Merger](https://www.mychesco.com/a/news/regional/fort-robotics-secures-20-million-ahead-of-nasdaq-merger/)
+- [...Industry Leaders and Space Force Acquisition Program Offices to Fast-Track National Security...](https://www.europesays.com/conflicts/61292/)
+- [Salesforce Expands Its Defense Platform with $375M Acquisition of Rune in 2026](https://www.blogarama.com/software-blogs/1376428-hire-app-developer-websenor-web-development-company-blog/81986736-salesforce-expands-its-defense-platform-375m-acquisition-rune-2026)
+- [PROPHECY HEADLINES.COM: Ethiopia receives 12 Russian Su-35 jets, plans S-400 acquisition](https://prophecynewsstand.blogspot.com/2026/10/ethiopia-receives-12-russian-su-35-jets.html)
+- [ITAT Deletes 1.08 Crore Tax on Section 28 Land Acquisition Interest](https://taxguru.in/income-tax/itat-deletes-rs-1-08-crore-tax-section-28-land-acquisition-interest.html)
+- [DoorDashs $17 Billion Instacart Deal: Buying the Future of Grocery Delivery](https://www.drkarlpopp.com/karl-michael-popps-blog/doordashs-17-billion-instacart-deal-buying-the-future-of-grocery-delivery)
