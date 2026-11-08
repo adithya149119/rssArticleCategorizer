@@ -1,0 +1,4 @@
+- [Aquis weekly movers: Stack BTC revises acquisition terms](https://ukinvestormagazine.co.uk/aquis-weekly-movers-stack-btc-revises-acquisition-terms/)
+- [Analog Devices Completes Acquisition Of Alif Semiconductor To Expand Edge AI And Intelligent...](https://pulse2.com/analog-devices-completes-acquisition-of-alif-semiconductor-to-expand-edge-ai-and-intelligent-computing-capabilities/)
+- [China Blocks SoftBanks Acquisition of ABBs Robotics Division Amid AI Concerns](https://forklog.com/en/china-blocks-softbanks-acquisition-of-abbs-robotics-division-amid-ai-concerns/)
+- [3d Printing News Briefs, November 7, 2026: Repair, Acquisition, 3d Models, Ai, & More - 3dprint.com](https://3dprint.com/336334/3d-printing-news-briefs-11-7-2026/)
