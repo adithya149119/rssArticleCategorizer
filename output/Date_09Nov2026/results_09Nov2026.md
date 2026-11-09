@@ -1,0 +1,7 @@
+- [Fairbanks Morse Defense Completes Acquisition of Truflo Marine, Expanding Mission-Critical...](https://www.tradeshownews.com/news/home/20261108839632/en/Fairbanks-Morse-Defense-Completes-Acquisition-of-Truflo-Marine-Expanding-Mission-Critical-Valve-Capabilities-for-Allied-Navies)
+- [...off the U.S. coast; Pursuing acquisition of Austal...](https://www.europesays.com/korea/221615/)
+- [Trainee Recruitment Consultant - Proactive Talent Acquisition!](https://talents.studysmarter.co.uk/companies/wayman-learning-trust/trainee-recruitment-consultant-proactive-talent-acquisition-46103296/)
+- [Military academy merger plan remains under review](https://www.ajupress.com/view/20261109110522990)
+- [South Korea approves acquisition strategy for nuclear submarine programme](https://www.bairdmaritime.com/security/naval/naval-submersibles/south-korea-nuclear-submarine-strategy)
+- [What M-2522 Means for AI Acquisition Evidence](https://theairesearchcenter.medium.com/what-m-25-22-means-for-ai-acquisition-evidence-7a3e496bc954)
+- [Fairbanks Morse Defense Completes Acquisition of Truflo Marine, Expanding Mission-Critical Valve Capabilities for Allied Navies](http://www.businesswire.com/news/home/20261108839632/en/Fairbanks-Morse-Defense-Completes-Acquisition-of-Truflo-Marine-Expanding-Mission-Critical-Valve-Capabilities-for-Allied-Navies/?feedref=JjAwJuNHiystnCoBq_hl-Rc4vIAVcHHkbDcwJimU8QtrtlakeQ9hNboBqTAWIjTge3KWq9s9jif-UkBjBsFRyYAbRTSLTc1mgvhPlnaBA55M-oupQnbXnhKsYk8RmHF_kAy2gZikaX3QWV6xOvgFlA==)
