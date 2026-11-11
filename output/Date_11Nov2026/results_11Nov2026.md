@@ -1,0 +1,8 @@
+- [FTC Moves to Clear Naver Financial-Dunamu Merger With Conditions](https://www.europesays.com/korea/224332/)
+- [Global Satellite Acquisition Vehicle Market Size, Growth Analysis, Trends & Forecast 2026-2034](https://www.verifiedmarketreports.com/product/satellite-acquisition-vehicle-market/)
+- [GPAT: SEC Form 425 filed by GP-Act III Acquisition Corp.](https://www.quantisnow.com/insight/sec-form-425-filed-by-gp-act-iii-acquisition-corp-6784725)
+- [AeroVironment Completes Acquisition of Telerob, Expanding Multi-Domain Robotic Systems...](https://www.businesswire.com/news/home/20210504005768/en/AeroVironment-Completes-Acquisition-of-Telerob-Expanding-Multi-Domain-Robotic-Systems-Offering-and-Global-Presence)
+- [...related to funding and land acquisition for the implementation of 3 expressway...](https://www.vietnam.vn/en/go-vuong-nguon-von-mat-bang-khi-trien-khai-3-du-an-cao-toc)
+- [To Implement Acquisition Transformation, Empower Military Mavericks](https://www.europesays.com/conflicts/77123/)
+- [...Inc. Announces Strategic Share Acquisition in Australian Space Technology Company...](https://www.valuespectrum.com/corporate_news/1526676-pmgc-holdings-inc-announces-strategic-share-acquisition-in-australian-space-technology-company-orbit2orbit)
+- [Govt plans acquisition of naval ships and aircraft to strengthen the military Defence Minister](https://www.myjoyonline.com/govt-plans-acquisition-of-naval-ships-and-aircraft-to-strengthen-the-military-defence-minister/)
