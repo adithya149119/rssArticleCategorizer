@@ -1,0 +1,6 @@
+- [...Advancing AtlasClear Holdings Acquisition](https://wallstreetnation.com/dawson-james-securities-files-continuing-membership-application-with-finra-advancing-atlasclear-holdings-acquisition/)
+- [Serco Expands Defence Capabilities With Acquisition of QinetiQ's US Business - United States](https://www.europesays.com/unitedstates/122199/)
+- [We acquisition the list our selves, best towards gambling enterprises we...](http://m-corp.pl/2026/11/14/we-acquisition-the-list-our-selves-best-towards-gambling-enterprises-we-had-area-a-player-so-youre-able-to-first/)
+- [...Gaza genocide backlash to quiet merger: How a UK charity hosting Israeli army veterans vanished...](https://www.presstv.co.uk/Detail/2026/11/14/780676/the-quiet-end-of-a-charity-for-israels-war-disabled)
+- [Evening digest: oil heads for weekly decline, Tesla SpaceX merger talks advance Simple Money Goals](https://simplemoneygoals.com/2026/11/14/evening-digest-oil-heads-for-weekly-decline-tesla-spacex-merger-talks-advance/)
+- [G-TECH Approves $35 Million Investment in IX Acquisition for Drone Push](https://www.tokenpost.com/news/business/57328)
