@@ -1,0 +1,6 @@
+- [Brazil Court Halts Cidadania Party Merger Vote](https://www.riotimesonline.com/brazil-court-halts-cidadania-party-merger-vote/)
+- [Tesla-SpaceX Merger Pools 30,221 Bitcoin Holdings](https://thecurrencyanalytics.com/bitcoin/tesla-spacex-merger-pools-30221-bitcoin-310234)
+- [30K Bitcoin and A LOT of noise Its what a Tesla-SpaceX merger really means for crypto](https://cryptonews.net/news/bitcoin/33790198/)
+- [Tesla-SpaceX Merger Could Create Sixth-Largest Corporate Bitcoin Holder](https://maxbit.cc/tesla-spacex-merger-could-create-sixth-largest-corporate-bitcoin-holder-14638.html)
+- [Poland, Greece Sign Radar Satellite Acquisition Memorandum](https://wisevoter.com/world/2026/11/21/poland-greece-radar-satellite-acquisition-memorandum)
+- [Beyuo Defends Acquisition of New Presidential Jet](https://www.modernghana.com/news/1546611/beyuo-defends-acquisition-of-new-presidential.html)
